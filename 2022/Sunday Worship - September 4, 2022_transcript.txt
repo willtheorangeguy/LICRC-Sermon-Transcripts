@@ -1,0 +1,2071 @@
+[0.00 --> 26.62]  Our
+[30.00 --> 34.68]  He picked me up, He turned me around
+[34.68 --> 37.88]  He placed my feet on solid ground
+[37.88 --> 41.00]  I thank the Master, I thank the Savior
+[41.00 --> 45.76]  Because He killed my heart, He changed my name
+[45.76 --> 48.94]  Forever free, I am not the Savior
+[48.94 --> 52.14]  I thank the Master, I thank the Savior
+[52.14 --> 54.18]  I thank God
+[60.00 --> 75.86]  And if He did it for me, He can do it for you
+[75.86 --> 81.40]  If He did it for me, He can do it for you
+[81.40 --> 86.44]  Get up, get up, get up, get up out of that grave
+[86.44 --> 93.88]  Get up, get up, get up, get up out of that grave
+[93.88 --> 104.22]  Get up, get up, get up, get up家 tray
+[107.10 --> 113.26]  Get up, get up, get up, get up out of that grave
+[113.26 --> 134.38]  get up get up
+[143.26 --> 154.60]  Jesus
+[173.26 --> 175.26]  You can do it again
+[203.26 --> 205.26]  Oh
+[233.26 --> 235.26]  You can do it again
+[235.26 --> 237.26]  Because He killed my heart
+[237.26 --> 239.26]  Changed my name
+[239.26 --> 241.26]  Forever free
+[241.26 --> 243.26]  I love the sin
+[243.26 --> 245.26]  I thank the Master
+[245.26 --> 247.26]  I thank the sin
+[247.26 --> 249.26]  I thank God
+[263.26 --> 276.26]  We belly
+[276.26 --> 278.26]  To your bones
+[278.26 --> 280.26]  into pressure
+[280.26 --> 282.26]  to entire circumstances
+[282.26 --> 285.26]  You can figurezugre
+[285.26 --> 286.26]  i just did
+[286.26 --> 288.14]  чтобы
+[288.58 --> 291.26]  a few moments
+[291.26 --> 293.90]  See a way I don't
+[293.90 --> 298.00]  And it makes no sense
+[298.00 --> 301.20]  But you say that's what faith is for
+[301.20 --> 307.38]  When I see a flood, you see, I promise
+[307.38 --> 310.82]  When I see a grave, you see a door
+[310.82 --> 312.92]  When I'm at my end
+[312.92 --> 316.48]  You see where the future starts
+[316.48 --> 321.16]  I don't know how you make a way
+[321.16 --> 323.36]  But I know you will
+[323.36 --> 328.56]  I don't know how you make a way
+[328.56 --> 330.90]  But I know you will
+[330.90 --> 334.56]  You've been good on every promise
+[334.56 --> 336.36]  From Eden to Zion
+[336.36 --> 338.18]  Through every dead end
+[338.18 --> 340.06]  And out of that grave
+[340.06 --> 343.06]  I don't know how you make a way
+[343.06 --> 345.90]  But I know you will
+[345.90 --> 350.36]  When the world's on fire
+[350.36 --> 353.88]  It's not like you don't have a plan
+[353.88 --> 358.94]  And when the earth gives way on this rock
+[358.94 --> 361.86]  Your church will stand
+[361.86 --> 367.66]  And nothing has ever won't surprise you
+[367.66 --> 370.78]  Nothing has ever made you finish
+[370.78 --> 372.86]  To when it all shakes out
+[372.86 --> 376.42]  The gates of hell don't stand its chance
+[376.42 --> 380.76]  I don't know how you make a way
+[380.76 --> 383.32]  But I know you will
+[383.32 --> 388.04]  I don't know how you make a way
+[388.04 --> 391.42]  But I know you will
+[391.42 --> 394.52]  You've been good on every promise
+[394.52 --> 396.26]  From Eden to Zion
+[396.26 --> 397.88]  Through every dead end
+[397.88 --> 400.04]  And out of that grave
+[400.04 --> 402.88]  I don't know how you make a way
+[402.88 --> 405.88]  But I know you will
+[405.88 --> 412.66]  You've pulled my heart from the chain
+[412.66 --> 415.98]  You've got the road to the sea
+[415.98 --> 417.86]  From all I've said
+[417.86 --> 423.06]  Good morning, everyone.
+[425.18 --> 426.06]  That's pretty good.
+[426.56 --> 428.92]  It's good to be here in church this morning with you all.
+[429.24 --> 430.44]  My name is Kevin.
+[430.54 --> 432.98]  I'm the youth pastor here at Langley Manual CRC.
+[433.08 --> 434.74]  It's good to see so many of you here today.
+[435.20 --> 437.18]  Hopefully so many of you online as well.
+[437.52 --> 438.94]  Before we get started on our service,
+[439.00 --> 440.32]  I've got a couple of announcements.
+[440.32 --> 448.52]  The first is that today we are having our baseball and potluck picnic.
+[449.10 --> 449.70]  That's what it is.
+[449.96 --> 451.58]  Our baseball and potluck picnic
+[451.58 --> 454.46]  after the church from 12 till 3 at McLeod Park.
+[454.54 --> 455.32]  So just down the road.
+[456.02 --> 457.80]  Some of you have signed up, which is great.
+[457.90 --> 458.70]  You're going to play baseball.
+[458.80 --> 459.50]  It's going to be awesome.
+[459.80 --> 462.02]  If you haven't signed up and still want to play baseball,
+[462.56 --> 463.04]  absolutely.
+[463.30 --> 463.76]  Come on out.
+[463.84 --> 464.64]  Just bring your glove.
+[465.08 --> 466.24]  Bring a bat if you've got it.
+[466.30 --> 466.96]  We've got bases.
+[467.08 --> 467.62]  We've got balls.
+[467.68 --> 468.40]  It's going to be fun.
+[468.40 --> 471.90]  And anybody can come and just enjoy the game to watch
+[471.90 --> 474.50]  or hang out on the side or in the park or whatever.
+[474.64 --> 476.06]  So if you just want to come and hang out,
+[476.38 --> 477.88]  spend some time with your church family,
+[478.28 --> 479.04]  please do come.
+[479.10 --> 481.24]  We just ask, bring a little food to share
+[481.24 --> 483.06]  and we will have a good time together that way.
+[483.12 --> 484.32]  So that's 12 to 3 today.
+[484.82 --> 485.72]  Rain or rain.
+[485.94 --> 487.92]  Because it looks like it might rain a little bit.
+[488.24 --> 488.90]  But that's fine.
+[488.94 --> 489.78]  We're going to have fun anyways.
+[491.66 --> 494.28]  Reactivate is a youth conference
+[494.28 --> 496.58]  happening next weekend at Willowby.
+[496.58 --> 498.38]  It's hosted by Willowby,
+[498.48 --> 500.14]  but it's hosted by four of us youth pastors.
+[500.30 --> 502.48]  We've been putting it on for years now.
+[502.60 --> 504.84]  That happens next week for the weekend,
+[504.96 --> 506.18]  Friday to Sunday.
+[506.30 --> 507.16]  The youth have signed up.
+[507.26 --> 508.48]  Registration is closed.
+[508.84 --> 512.56]  However, there are some needs for volunteers.
+[512.84 --> 515.18]  So if you are able to help out with anything,
+[515.56 --> 516.68]  we need help in the kitchen.
+[516.84 --> 518.74]  We need help setting stuff up on certain days,
+[518.84 --> 520.38]  taking stuff down on certain days.
+[520.66 --> 522.00]  We need help with security.
+[522.32 --> 523.30]  We need help with parking.
+[523.30 --> 526.34]  If there's an area that you think you could help out with,
+[526.64 --> 528.90]  please check the bulletin that came out the other day.
+[528.96 --> 530.10]  There's a link you can click.
+[530.50 --> 531.76]  And there's different time slots
+[531.76 --> 533.36]  and different things that you can sign up for.
+[533.46 --> 534.76]  So if that's something you're able to do,
+[534.98 --> 536.70]  we would value your help for that weekend.
+[537.18 --> 539.48]  We have over 150 youth from across BC
+[539.48 --> 540.54]  coming out to this thing.
+[540.80 --> 541.70]  It's going to be very fun.
+[542.10 --> 543.54]  Please come and be a part of that.
+[543.74 --> 545.34]  If you join us for any of the volunteering,
+[545.70 --> 546.74]  you're also welcome to join us
+[546.74 --> 547.96]  for any of the general sessions
+[547.96 --> 549.34]  and hear a speaker
+[549.34 --> 550.72]  and join us in some worship there too.
+[550.72 --> 552.96]  So consider doing that, please.
+[554.16 --> 555.92]  Finally, a couple of announcements
+[555.92 --> 557.30]  regarding volunteers.
+[557.82 --> 559.36]  We are looking for a few more volunteers
+[559.36 --> 560.36]  in different capacities
+[560.36 --> 561.86]  as our church gets rolling.
+[562.00 --> 564.06]  Kickoff starts next week, Sunday.
+[564.56 --> 565.96]  There's an announcement slide looking.
+[566.02 --> 567.38]  We're looking for some GEMS counselors.
+[567.58 --> 568.28]  You can talk to Courtney.
+[568.36 --> 568.88]  She's in the back.
+[568.94 --> 569.30]  Wave, Courtney.
+[570.06 --> 570.96]  Everyone say hi, Courtney.
+[572.54 --> 573.62]  So talk to Courtney
+[573.62 --> 575.42]  if you can be a GEMS counselor this week.
+[575.74 --> 576.56]  This year, sorry.
+[576.82 --> 577.80]  We are also looking for
+[577.80 --> 579.16]  Children's Worship Time volunteers.
+[579.16 --> 580.90]  If that's something you can help out with,
+[581.16 --> 582.48]  you can talk to Amy Hubert,
+[582.60 --> 584.20]  who I don't see here right now,
+[584.30 --> 586.30]  but you can come talk to me as well.
+[586.86 --> 589.12]  We're also looking for one more coordinator
+[589.12 --> 590.48]  for Children's Worship Time.
+[590.70 --> 593.58]  So Amy Hubert and Cameron Vischer
+[593.58 --> 594.64]  are taking that on.
+[594.70 --> 595.32]  There's two of them.
+[595.38 --> 596.48]  We are looking for a third
+[596.48 --> 597.96]  to sort of round out the team.
+[598.38 --> 599.42]  So a lot of the legwork
+[599.42 --> 601.08]  has been done to get going on the year,
+[601.20 --> 602.90]  but we would love one more person
+[602.90 --> 604.28]  to join that awesome team of two.
+[604.36 --> 604.98]  So if that's something
+[604.98 --> 605.96]  you might be interested in,
+[606.02 --> 607.10]  please come chat with me
+[607.10 --> 608.32]  about that as well.
+[608.74 --> 609.32]  And finally,
+[609.80 --> 612.34]  there will be a mission fair
+[612.34 --> 613.18]  sort of happening
+[613.18 --> 614.72]  on September 18th here in church.
+[614.78 --> 615.60]  So you can kind of see
+[615.60 --> 616.92]  what's all going on this year.
+[617.30 --> 618.26]  Sign up for different ministries
+[618.26 --> 619.96]  you want to attend and volunteer.
+[620.64 --> 621.34]  And as well,
+[621.44 --> 622.46]  on the 19th,
+[622.46 --> 624.66]  there's a Safe Church training night.
+[625.12 --> 626.12]  And there's also going to be
+[626.12 --> 627.30]  a second one in October.
+[627.50 --> 628.34]  So those are mandatory
+[628.34 --> 629.64]  if you are in a ministry
+[629.64 --> 630.86]  with youth or young people
+[630.86 --> 631.78]  or vulnerable people
+[631.78 --> 634.96]  to sign up for that evening,
+[635.04 --> 635.80]  that Safe Church evening
+[635.80 --> 636.90]  on September 19th.
+[636.90 --> 637.88]  Please talk to Sylvia.
+[638.04 --> 638.76]  There's Sylvia there.
+[638.88 --> 639.38]  Wave Sylvia.
+[639.48 --> 640.32]  Everybody say hi, Sylvia.
+[641.52 --> 642.26]  Yeah, talk to her.
+[642.40 --> 643.76]  And then in October,
+[643.84 --> 644.38]  there's a second one.
+[644.42 --> 645.04]  So if you can't make
+[645.04 --> 645.94]  Monday the 19th,
+[646.14 --> 647.04]  make sure you can make
+[647.04 --> 649.16]  October's Safe Church night as well.
+[649.48 --> 650.58]  That is all the announcements
+[650.58 --> 651.10]  this morning.
+[653.32 --> 654.74]  I'm going to invite you to stand
+[654.74 --> 656.50]  and receive God's greeting.
+[656.50 --> 663.60]  God's greeting this morning
+[663.60 --> 665.36]  comes from Revelation 1
+[665.36 --> 666.00]  where it says,
+[666.44 --> 667.78]  Grace and peace to you
+[667.78 --> 668.82]  from him who is
+[668.82 --> 669.96]  and who was
+[669.96 --> 671.32]  and who is to come
+[671.32 --> 672.92]  and from the seven spirits
+[672.92 --> 674.08]  before his throne
+[674.08 --> 675.64]  and from Jesus Christ
+[675.64 --> 677.24]  who is the faithful witness,
+[677.72 --> 678.94]  the firstborn of the dead
+[678.94 --> 679.88]  and the ruler
+[679.88 --> 681.42]  of the kings of the earth.
+[682.28 --> 682.56]  Amen.
+[682.78 --> 683.54]  Let's worship together.
+[683.54 --> 683.64]  Amen.
+[683.64 --> 683.72]  Amen.
+[683.72 --> 683.76]  Amen.
+[686.50 --> 694.00]  Good morning.
+[694.40 --> 696.38]  Our call to worship this morning
+[696.38 --> 699.04]  is inspired by Isaiah chapter 65.
+[699.96 --> 700.94]  Come to the water,
+[701.20 --> 702.22]  all you who thirst.
+[702.58 --> 703.76]  Come drink deeply
+[703.76 --> 705.02]  from the river of life.
+[705.76 --> 706.78]  Come to the water,
+[707.00 --> 708.00]  all who are weary.
+[708.56 --> 710.24]  Come rest in the quiet pools
+[710.24 --> 711.12]  of God's love.
+[711.96 --> 713.04]  Come to the water,
+[713.04 --> 714.92]  all you who long for justice.
+[715.46 --> 716.36]  Come be renewed
+[716.36 --> 718.28]  in God's ever-flowing stream.
+[719.20 --> 720.94]  For God is here among us,
+[721.20 --> 722.42]  washing away the dust
+[722.42 --> 724.22]  and grime of our lives
+[724.22 --> 725.68]  and pouring out the Spirit
+[725.68 --> 727.30]  on all of us who thirst.
+[727.30 --> 740.70]  All who are thirsty,
+[740.70 --> 751.58]  all who are weary,
+[751.58 --> 755.48]  Come to the fountain
+[755.48 --> 761.58]  If your heart in the stream of life
+[761.58 --> 763.82]  And the pain and the sorrow
+[763.82 --> 768.32]  Be washed away
+[768.32 --> 772.54]  In the waves of His mercy
+[772.54 --> 778.58]  As He cries out to thee
+[778.58 --> 785.34]  We sing, come Lord Jesus, come
+[785.34 --> 794.86]  Come Lord Jesus, come
+[794.86 --> 797.80]  You are thirsty
+[797.80 --> 803.36]  All who are weak
+[803.36 --> 806.52]  Come to the fountain
+[806.52 --> 812.40]  If your heart in the stream of life
+[812.40 --> 814.96]  And the pain and the sorrow
+[814.96 --> 819.28]  Be washed away
+[819.28 --> 823.28]  In the waves of His mercy
+[823.28 --> 829.16]  As He cries out to thee
+[829.16 --> 836.16]  We sing, Holy Spirit, come
+[836.16 --> 846.04]  Holy Spirit, come
+[846.04 --> 853.04]  We sing, come Lord Jesus, come
+[853.04 --> 858.04]  Come Lord Jesus, come
+[858.04 --> 863.92]  Lord Jesus, come
+[863.92 --> 879.80]  We sing, Holy Spirit, come
+[879.80 --> 885.68]  For the word at the beginning
+[885.68 --> 894.24]  One with God, the Lord most high
+[894.24 --> 900.90]  Your hidden glory in creation
+[900.90 --> 905.78]  Now revealed in you
+[905.78 --> 908.66]  You are Christ
+[908.66 --> 912.62]  What a beautiful name it is
+[912.62 --> 916.58]  What a beautiful name it is
+[916.58 --> 923.66]  The name of Jesus Christ my King
+[923.66 --> 928.54]  What a beautiful name it is
+[928.54 --> 932.14]  Nothing compares to this
+[932.14 --> 935.66]  What a beautiful name it is
+[935.66 --> 939.62]  The name of Jesus
+[939.62 --> 941.50]  Jesus Christ my King
+[941.50 --> 945.50]  You didn't want heaven
+[945.50 --> 947.38]  Heaven without us
+[947.38 --> 948.38]  Heaven without us
+[948.38 --> 955.38]  So Jesus, you brought heaven down
+[955.38 --> 958.26]  Your sin was greater
+[958.26 --> 959.26]  Your sin was greater
+[959.26 --> 960.26]  Your love was greater
+[960.26 --> 962.26]  Your love was greater
+[962.26 --> 969.26]  What could separate us now
+[969.26 --> 973.26]  What a wonderful name it is
+[973.26 --> 977.32]  What a wonderful name it is
+[977.32 --> 984.26]  The name of Jesus Christ my King
+[984.26 --> 988.14]  What a wonderful name it is
+[988.14 --> 988.82]  What a wonderful name it is
+[988.82 --> 992.30]  Nothing compares to this
+[992.30 --> 995.66]  What a wonderful name it is
+[995.66 --> 999.36]  The name of Jesus
+[999.36 --> 1003.08]  What a wonderful name it is
+[1003.08 --> 1006.86]  The name of Jesus
+[1006.86 --> 1036.84]  Death is a wonderful name it is
+[1036.84 --> 1039.26]  Death could not hold you
+[1039.26 --> 1042.72]  The veil tore before you
+[1042.72 --> 1050.22]  The silence, the boast of sin and grave
+[1050.22 --> 1053.24]  The heavens are rolling
+[1053.24 --> 1056.76]  The praise of your glory
+[1056.76 --> 1063.16]  For you are raised to life again
+[1063.16 --> 1067.04]  You have no rival
+[1067.04 --> 1069.04]  You have no rival
+[1069.04 --> 1070.92]  You have no equal
+[1070.92 --> 1074.04]  Now and forever
+[1074.04 --> 1078.54]  God you reign
+[1078.54 --> 1081.48]  Yours is the kingdom
+[1081.48 --> 1085.14]  Yours is the glory
+[1085.14 --> 1088.90]  Yours is the name
+[1088.90 --> 1092.78]  The name of Jesus Christ my King
+[1092.78 --> 1094.78]  What a powerful name it is
+[1094.78 --> 1095.98]  What a powerful name it is
+[1095.98 --> 1098.78]  What a powerful name it is
+[1098.78 --> 1106.32]  The name of Jesus Christ my King
+[1106.32 --> 1110.22]  What a powerful name it is
+[1110.22 --> 1112.90]  Nothing can stand against
+[1112.90 --> 1116.78]  What a powerful name it is
+[1116.78 --> 1117.28]  What a powerful name it is
+[1117.28 --> 1118.28]  What a powerful name it is
+[1118.28 --> 1119.36]  What a powerful name it is
+[1119.36 --> 1120.28]  The name of Jesus
+[1120.28 --> 1123.78]  You have no rival
+[1123.78 --> 1125.28]  You have no rival
+[1125.28 --> 1127.32]  You have no equal
+[1127.32 --> 1131.20]  Now and forever
+[1131.20 --> 1133.20]  God you reign
+[1133.20 --> 1137.20]  Yours is the kingdom
+[1137.20 --> 1138.20]  Yours is the kingdom
+[1138.20 --> 1140.20]  Yours is the glory
+[1140.20 --> 1143.20]  Yours is the name
+[1143.20 --> 1153.08]  What a powerful name it is
+[1153.08 --> 1155.08]  What a powerful name it is
+[1155.08 --> 1156.08]  What a powerful name it is
+[1156.08 --> 1161.08]  The name of Jesus Christ my King
+[1161.08 --> 1166.08]  What a powerful name it is
+[1166.08 --> 1177.96]  What a powerful name it is
+[1177.96 --> 1181.96]  What a powerful name it is
+[1181.96 --> 1183.96]  The name of Jesus
+[1183.96 --> 1188.96]  What a beautiful name it is
+[1188.96 --> 1193.96]  The name of Jesus
+[1193.96 --> 1195.32]  Jesus
+[1195.32 --> 1198.78]  I invite you to be seated
+[1198.78 --> 1206.24]  Let's pray together
+[1206.24 --> 1212.34]  Our Father in Heaven
+[1212.34 --> 1215.40]  We come before you this morning
+[1215.40 --> 1218.06]  Recognizing how much we need you
+[1218.06 --> 1220.60]  How much we need your love
+[1220.60 --> 1222.20]  Your mercy
+[1222.20 --> 1223.84]  And your grace
+[1223.84 --> 1227.02]  God each of us has sinned
+[1227.86 --> 1229.32]  Whether it be our thoughts
+[1229.32 --> 1230.70]  Or our words
+[1230.70 --> 1231.62]  Or our deeds
+[1231.62 --> 1233.24]  God
+[1233.24 --> 1235.86]  We are often so busy
+[1235.86 --> 1236.86]  With what we feel
+[1236.86 --> 1238.06]  Are the important things
+[1238.06 --> 1238.72]  In our lives
+[1238.72 --> 1241.26]  That we fail to recognize you
+[1241.26 --> 1243.02]  In each of our circumstances
+[1243.02 --> 1246.42]  Lord we confess
+[1246.42 --> 1248.78]  We have not loved you
+[1248.78 --> 1249.80]  With our whole heart
+[1249.80 --> 1251.50]  Nor served you
+[1251.50 --> 1252.38]  As we should
+[1252.38 --> 1255.32]  We have not always loved others
+[1255.32 --> 1256.88]  As we have loved ourselves
+[1256.88 --> 1260.10]  We have not always been salt
+[1260.10 --> 1261.44]  And light in this world
+[1261.44 --> 1263.34]  Father God
+[1263.34 --> 1265.78]  Through Jesus we pray for mercy
+[1265.78 --> 1267.46]  We pray for forgiveness
+[1267.46 --> 1271.00]  We thank you for your steadfast love
+[1271.00 --> 1273.56]  And mercies that never cease
+[1273.56 --> 1276.16]  And are new every morning
+[1276.16 --> 1279.28]  Great is your faithfulness
+[1279.28 --> 1279.76]  Oh God
+[1279.76 --> 1282.00]  In Jesus name alone we pray
+[1282.00 --> 1282.94]  Amen
+[1282.94 --> 1293.98]  Great is thy faithfulness
+[1293.98 --> 1297.64]  Oh God my Father
+[1297.64 --> 1307.18]  There is no shadow of turning with thee
+[1307.18 --> 1311.60]  Thou changest not
+[1311.60 --> 1314.14]  Thy compassions
+[1314.14 --> 1316.98]  They fail not
+[1316.98 --> 1320.60]  As thou hast been
+[1320.60 --> 1325.60]  Thou forever wilt be
+[1325.60 --> 1330.92]  Great is thy faithfulness
+[1330.92 --> 1335.38]  Great is thy faithfulness
+[1335.38 --> 1365.36]  Lord unto me
+[1365.36 --> 1373.36]  Summer and winter and springtime and harvest
+[1373.36 --> 1374.36]  Summer and winter and springtime and harvest
+[1374.36 --> 1381.36]  Sun, moon and stars in their forces above
+[1381.36 --> 1382.36]  Join with all nations
+[1382.36 --> 1386.36]  Join with all nations
+[1386.36 --> 1388.36]  In manifold witness
+[1388.36 --> 1392.36]  To thy great faithfulness
+[1392.36 --> 1396.36]  To thy great faithfulness
+[1396.36 --> 1399.36]  Mercy and love
+[1399.36 --> 1404.36]  Great is thy faithfulness
+[1404.36 --> 1405.50]  Great is thy faithfulness
+[1405.50 --> 1409.36]  Great is thy faithfulness
+[1409.36 --> 1411.36]  Great is thy faithfulness
+[1411.36 --> 1413.30]  Great is thy faithfulness
+[1413.30 --> 1413.36]  Great is thy faithfulness
+[1413.36 --> 1414.36]  Great by morning
+[1414.36 --> 1414.94]  Interesting, new blessings I see
+[1414.94 --> 1415.36]  Through fountволen andhn though flame among holy this
+[1415.36 --> 1417.36]  Great is thy faithfulness
+[1417.36 --> 1435.98]  All I have needed, thy hand hath provided. Great is thy faithfulness, Lord, unto thee.
+[1435.98 --> 1456.46]  Pardon for sin and the peace that endureth. Thy own dear presence to cheer unto life.
+[1456.46 --> 1473.46]  Strength for today and bright hope for tomorrow. Blessings all bind with ten thousand beside.
+[1473.46 --> 1490.96]  Great is thy faithfulness, great is thy faithfulness. Morning by morning new mercies I see.
+[1490.96 --> 1509.26]  All I have needed, thy hand hath provided. Great is thy faithfulness, Lord, unto thee.
+[1512.26 --> 1514.98]  I invite you to rise as you are able for our next song.
+[1520.96 --> 1550.94]  Thank you.
+[1550.96 --> 1552.96]  Thank you.
+[1552.96 --> 1553.96]  Thank you.
+[1553.96 --> 1555.96]  Thank you.
+[1580.96 --> 1583.96]  Thank you.
+[1583.96 --> 1587.96]  Sing praise.
+[1587.96 --> 1590.96]  Sing praise.
+[1590.96 --> 1592.96]  Sing praise.
+[1592.96 --> 1594.96]  Sing praise.
+[1594.96 --> 1595.96]  Sing praise.
+[1595.96 --> 1597.96]  Sing praise.
+[1597.96 --> 1598.96]  Thank you.
+[1598.96 --> 1599.96]  Amen.
+[1599.96 --> 1600.96]  Thank you.
+[1600.96 --> 1602.96]  Thank you.
+[1602.96 --> 1603.96]  Thank you.
+[1603.96 --> 1604.96]  Thank you.
+[1604.96 --> 1608.50]  Forever God is with us.
+[1608.84 --> 1609.66]  Forever.
+[1612.18 --> 1613.42]  Forever.
+[1616.48 --> 1620.20]  We sing to the setting sun.
+[1620.52 --> 1622.92]  His love endures forever.
+[1623.86 --> 1627.84]  By the grace of God, He will carry on.
+[1627.84 --> 1630.58]  His love endures forever.
+[1630.58 --> 1633.10]  Sing praise.
+[1635.06 --> 1637.02]  Sing praise.
+[1638.88 --> 1640.66]  Sing praise.
+[1642.84 --> 1644.56]  Sing praise.
+[1646.66 --> 1649.40]  Forever God is able.
+[1650.48 --> 1653.38]  Forever God is strong.
+[1653.38 --> 1657.74]  Forever God is with us.
+[1658.10 --> 1658.90]  Forever.
+[1660.58 --> 1664.58]  Forever you are faithful.
+[1665.70 --> 1668.50]  Forever you are strong.
+[1669.50 --> 1672.96]  Forever you are with us.
+[1673.30 --> 1674.08]  Forever.
+[1676.82 --> 1677.50]  Forever.
+[1677.50 --> 1678.02]  Forever.
+[1683.00 --> 1684.68]  I请 to be seated.
+[1684.68 --> 1705.98]  Good morning.
+[1707.20 --> 1710.80]  My name is Emo, and I'm a deacon here at Emanuel.
+[1710.80 --> 1718.28]  Our first offering is for the church budget, which covers the administration of the church
+[1718.28 --> 1724.62]  and its ministries, and the special offering for today is for Safe Church Ministry.
+[1725.94 --> 1731.66]  Through Compassion, Safe Church Ministry helps build communities where people are free to
+[1731.66 --> 1738.56]  worship and grow free from abuse, as well as help heal those who have suffered abuse.
+[1738.56 --> 1746.48]  The Safe Church Committee for Classes BC Southeast, of which Langley Emanuel is a member church,
+[1747.00 --> 1752.84]  helps with consulting a church when abuse has occurred, offers coaching and networking
+[1752.84 --> 1760.20]  for Safe Church teams, supports training and hosting online training events, and offers
+[1760.20 --> 1766.58]  seed money for Safe Church coordinators and mini-grants to Safe Church teams to develop
+[1766.58 --> 1768.08]  Safe Church initiatives.
+[1768.56 --> 1773.98]  Please consider supporting this ministry financially and also in your daily prayers.
+[1775.42 --> 1780.86]  So as those who have been chosen of God, holy and beloved, put on a heart of compassion,
+[1781.18 --> 1784.40]  kindness, humility, gentleness, and patience.
+[1785.20 --> 1787.02]  Colossians 3, verse 12.
+[1787.02 --> 1800.88]  Next week's offering is for the budget and C10, which is the ministry in Mexico by Jody Gonzales and her husband.
+[1800.88 --> 1804.12]  for the United Nations Columbian Catorian Archbishop.
+[1804.12 --> 1805.72]  The Espanou of juniors andustasa.com
+[1805.72 --> 1812.12]  A
+[1812.12 --> 1812.80]  song and
+[1812.80 --> 1814.46]  along水
+[1814.54 --> 1814.86]  political
+[1814.86 --> 1816.36]  combined
+[1816.36 --> 1816.52]  multikultural
+[1816.52 --> 1816.70]  claims
+[1816.70 --> 1817.38]  And
+[1817.48 --> 1817.58]  goodbye
+[1817.58 --> 1818.18] 谷
+[1818.18 --> 1837.16]  All these pieces broken and scattered
+[1837.16 --> 1844.58]  In mercy gathered, mended and whole
+[1844.58 --> 1851.34]  Empty-handed but not forsaken
+[1851.34 --> 1859.04]  I've been set free, I've been set free
+[1859.04 --> 1867.00]  Amazing grace, how sweet the sound
+[1867.00 --> 1872.10]  Has saved a wretch like me
+[1872.10 --> 1880.86]  Oh, I once was lost, but now I am found
+[1880.86 --> 1885.10]  Was blind, but now I see
+[1885.10 --> 1889.86]  Oh, I can see you now
+[1889.86 --> 1899.62]  Oh, I can see the love in your eyes
+[1899.62 --> 1904.62]  Laying yourself down
+[1904.62 --> 1913.38]  Raising up the broken to life
+[1913.38 --> 1933.14]  You take our failure, you take our weakness
+[1933.14 --> 1939.90]  You set your treasure in jars of clay
+[1939.90 --> 1943.90]  So take this heart, Lord
+[1943.90 --> 1950.66]  I'll be your vessel, the world to see
+[1950.66 --> 1954.66]  Your life in me
+[1954.66 --> 1962.16]  Amazing grace, how sweet the sound
+[1962.16 --> 1966.92]  That saved a wretch like me
+[1966.92 --> 1974.92]  Oh, I once was lost, but now I am found
+[1974.92 --> 1979.68]  Was blind, but now I am found
+[1979.68 --> 1981.68]  Was blind, but now I am found
+[1981.68 --> 1983.68]  Oh, I can see you now
+[1983.68 --> 1985.68]  Oh, I can see you now
+[1985.68 --> 1996.44]  Oh, I can see you now
+[1996.44 --> 2000.44]  Oh, I can see you now
+[2000.44 --> 2007.20]  Raising up the broken to life
+[2007.20 --> 2017.96]  guitar solo
+[2017.96 --> 2038.72]  Amazing grace, how sweet the sound
+[2038.72 --> 2039.72]  Has saved a wretch like me
+[2039.72 --> 2043.48]  Oh, I once was lost, but now I am found
+[2043.48 --> 2047.48]  Was blind, but now I see
+[2047.48 --> 2050.48]  Oh, I can see you now
+[2050.48 --> 2054.48]  Oh, I can see you now
+[2054.48 --> 2059.48]  Oh, I can see you now
+[2059.48 --> 2063.48]  Oh, I can see you now
+[2063.48 --> 2081.64]  Oh, I can see you now
+[2081.64 --> 2084.68]  Oh, I can see you now
+[2084.68 --> 2087.04]  Oh, I can see you now
+[2087.04 --> 2090.02]  Beating yourself down
+[2090.02 --> 2101.04]  Amazing grace, how sweet the sound that saved a wretch like me.
+[2114.72 --> 2116.78]  It's time for the kids.
+[2117.26 --> 2117.84]  Come on up.
+[2120.02 --> 2120.80]  Oh, come on.
+[2123.92 --> 2124.88]  Nobody's coming?
+[2126.82 --> 2128.18]  Come on.
+[2128.76 --> 2129.68]  Thank you.
+[2132.18 --> 2139.80]  Okay, four, five, six, seven, eight, nine.
+[2140.86 --> 2141.54]  Awesome.
+[2141.84 --> 2142.82]  Thanks, guys, for coming.
+[2143.30 --> 2145.52]  I would have felt pretty lonely up here all by myself.
+[2147.52 --> 2148.24]  Yeah?
+[2148.24 --> 2150.70]  No reaction?
+[2151.60 --> 2152.38]  Okay, that's good.
+[2153.02 --> 2157.30]  You guys are going to go off if you're still part of the summer schedule.
+[2158.32 --> 2161.50]  So let's do a quick prayer, and then we'll do the blessing, okay?
+[2162.50 --> 2162.70]  Okay.
+[2162.70 --> 2165.98]  Lord, thank you for all these children in church today.
+[2166.44 --> 2168.40]  Thank you for the blessing that they are in our lives.
+[2168.74 --> 2176.24]  And Lord, we also pray a blessing on them and also on the teachers and the helpers that will be teaching them more about you today in their own classes.
+[2176.70 --> 2177.34]  Thank you, Lord.
+[2177.66 --> 2178.86]  Thank you for being our Father.
+[2179.30 --> 2179.50]  Amen.
+[2179.50 --> 2181.74]  Okay, let's stand up and do the blessing.
+[2186.40 --> 2186.72]  Ready?
+[2186.72 --> 2186.80]  Ready?
+[2187.70 --> 2189.84]  The Lord be with you.
+[2190.68 --> 2192.14]  The Lord be with you.
+[2192.54 --> 2192.74]  Okay.
+[2209.50 --> 2224.88]  My name's Eric Huberts.
+[2225.06 --> 2226.32]  I'm an elder here at Emmanuel.
+[2226.62 --> 2229.22]  I'll be leading you in our church family prayer.
+[2229.22 --> 2235.22]  Lord, you are our rock and our salvation, our fortress and our deliverer.
+[2235.52 --> 2238.66]  We thank you for being our stronghold and refuge.
+[2239.10 --> 2243.56]  We thank you that we can come to you as a church to worship and praise your name.
+[2243.56 --> 2249.36]  Today, we think of Rika Emmons' mother who passed away last week.
+[2249.80 --> 2251.40]  We pray for Rika.
+[2251.68 --> 2260.86]  She's still in the Netherlands with family and friends and thankful that Andy had an opportunity to hang out with his children this past week in Winnipeg and now that he's back with us.
+[2262.16 --> 2265.16]  This is the time of year as well when school is starting this week.
+[2265.66 --> 2272.56]  From preschool, elementary, middle school, high school, college and university, here and away.
+[2272.56 --> 2278.58]  This can be a very intimidating time for all ages and exciting as well.
+[2279.10 --> 2282.20]  We ask that you bless the teachers as well as the students.
+[2285.02 --> 2288.74]  I'd like to thank Pastor Chris and Kevin for the great work they have been doing here.
+[2289.18 --> 2299.36]  Now, with the starting of our new church year, I pray for full council here at Emmanuel, the deacons as they schedule and plan the seasons of givings and offerings,
+[2299.68 --> 2302.20]  elders as we plan our schedule and visits also.
+[2302.56 --> 2305.60]  Bless all Emmanuel ministries and volunteers.
+[2306.38 --> 2314.68]  Help Emmanuel bring all them together, all the helpers needed to make this year a success with nearly 35 different ministries this year.
+[2316.06 --> 2320.40]  We also want to remember Reactivate next weekend at Willoughby CRC.
+[2320.40 --> 2327.32]  that the youth are traveling from all over the province and that they will have safe traveling to getting there.
+[2328.22 --> 2330.90]  That the conference will have a great impact on their lives.
+[2332.10 --> 2332.84]  Praise the Lord.
+[2333.08 --> 2335.00]  Give thanks to the Lord for he is good.
+[2335.36 --> 2336.40]  His love endures forever.
+[2336.84 --> 2337.02]  Amen.
+[2350.40 --> 2358.60]  Oh, there's the church response that we're all used to, right?
+[2360.88 --> 2363.08]  It's really good to be with you guys this morning.
+[2363.48 --> 2366.26]  If you're visiting or checking us out for the first time, my name is Chris.
+[2366.26 --> 2367.44]  I'm one of the pastors here.
+[2370.34 --> 2372.02]  This has been one of those weeks, right?
+[2372.12 --> 2378.94]  Everything starts to, I want to say feel busy, but really what I mean is it starts to feel ordinary again for most of us, right?
+[2378.98 --> 2381.42]  As things kind of get back into the schedule.
+[2381.54 --> 2384.02]  And I love the schedule and the regular rhythms of it.
+[2384.02 --> 2388.42]  I'm super grateful that, you know, kids get to go back to school, for instance.
+[2388.52 --> 2390.20]  Just one thing, a random thing to name off.
+[2390.26 --> 2390.68]  No reason.
+[2393.30 --> 2398.36]  But with that, it is so good for us to get together like this.
+[2398.36 --> 2404.70]  It is so good for us to reflect on the Word of God and to dig into what He has to say for us.
+[2404.84 --> 2412.10]  And so, as we do that this morning, I'm going to invite you, if you have one, to grab your Bible, open it up.
+[2412.10 --> 2414.88]  If you use your phone, turn it on.
+[2414.94 --> 2417.08]  We're going to go to Mark 4 together.
+[2418.34 --> 2426.36]  I'm going to encourage you, if you have a Bible, to keep it open because we'll jump back and refer to that text throughout the message together.
+[2428.44 --> 2435.84]  We have been, this summer, in a series on parables, looking at the parables of Jesus.
+[2435.84 --> 2447.08]  And so, before I read this parable here, the final one in our series for the summer, just a quick recap to frame your mind about what a parable is.
+[2448.42 --> 2459.22]  Now, a parable is a story from everyday life to make a spiritual or theological point.
+[2459.22 --> 2460.22]  Right?
+[2461.12 --> 2463.84]  So, Jesus will talk about yeast and bread.
+[2463.98 --> 2468.48]  He will talk about lost sheep or lost coins or lost sons.
+[2469.00 --> 2473.12]  He will talk, in our case this morning, as we will see, about sowing seed.
+[2473.78 --> 2473.94]  Right?
+[2474.20 --> 2484.12]  Jesus takes ordinary, everyday stories common to the context of His audience and then imbues them with spiritual meaning.
+[2484.12 --> 2491.62]  Now, because it's to the context of His audience, some of that is lost on us because it's 2,000 years later.
+[2491.78 --> 2491.96]  Right?
+[2492.02 --> 2502.10]  I don't think any of us, to the best of my knowledge, are shepherds, right, free-ranging through Galilee and Palestine, worried about rocks and predatory animals.
+[2503.00 --> 2503.26]  Anyone?
+[2504.84 --> 2505.62]  Maybe online.
+[2505.78 --> 2507.40]  And I've never talked like this before.
+[2507.48 --> 2509.60]  But if you're online and that's you, leave it in the comments below.
+[2509.68 --> 2510.32]  I'd love to hear it.
+[2511.54 --> 2512.46]  Like and subscribe.
+[2514.12 --> 2516.12]  Like and subscribe.
+[2516.12 --> 2523.98]  Jesus takes everyday stories and imbues them with spiritual and theological significance.
+[2524.46 --> 2525.40]  That's a parable.
+[2525.84 --> 2529.58]  And so, with that, let's read from Mark 4 together.
+[2541.90 --> 2543.74]  Mark 4, I'll read the first 20 verses.
+[2544.12 --> 2546.12]  Mark 5, I'll read the first 20 verses.
+[2546.12 --> 2549.20]  Again, Jesus began to teach by the lake.
+[2550.20 --> 2555.68]  The crowd that gathered around Him was so large that He got into a boat and sat in it out on the lake,
+[2556.26 --> 2559.12]  while all the people were along the shore at the water's edge.
+[2559.82 --> 2565.00]  He taught them many things by parables, and in His teaching He said to them,
+[2565.00 --> 2566.00]  Listen,
+[2566.00 --> 2566.02]  Listen.
+[2567.00 --> 2569.58]  A farmer went out to sow his seed.
+[2570.40 --> 2574.88]  As he scattered the seed, some fell along the path, and the birds came and ate it up.
+[2575.34 --> 2578.44]  Some fell on rocky places where it did not have much soil.
+[2578.96 --> 2581.50]  It sprang up quickly because the soil was shallow.
+[2582.26 --> 2586.70]  But when the sun came up, the plants were scorched, and they withered because they had no root.
+[2586.70 --> 2594.14]  Other seed fell among the thorns, which grew up and choked the plants so that they did not bear grain.
+[2594.78 --> 2597.08]  Still other seed fell on good soil.
+[2597.76 --> 2604.46]  It came up and grew and produced a crop, some multiplying 30, some 60, some 100 times.
+[2604.46 --> 2606.68]  Then Jesus said,
+[2607.16 --> 2610.64]  Whoever has ears to hear, let them hear.
+[2612.22 --> 2617.20]  When He was alone, the twelve and the others around Him asked Him about the parables.
+[2618.12 --> 2618.88]  And He told them,
+[2619.52 --> 2624.38]  The secret, or the mystery, of the kingdom of God has been given to you.
+[2624.98 --> 2628.56]  But to those on the outside, everything is said in parables,
+[2628.56 --> 2632.96]  so that they may be ever seeing, but never perceiving,
+[2633.48 --> 2635.62]  and ever hearing, but never understanding.
+[2635.82 --> 2638.16]  Otherwise, they might turn and be forgiven.
+[2639.30 --> 2640.68]  Then Jesus said to them,
+[2641.52 --> 2644.00]  Don't you understand this parable?
+[2644.58 --> 2646.32]  How then will you understand any parable?
+[2646.92 --> 2648.54]  The farmer sows the word.
+[2649.18 --> 2652.80]  Some people are like seed along the path where the word is sown.
+[2652.90 --> 2657.42]  As soon as they hear it, Satan comes and takes away the word that was sown in them.
+[2657.42 --> 2664.16]  Others, like seed sown on rocky places, hear the word and at once receive it with joy.
+[2664.58 --> 2667.64]  But since they have no root, they last only a short time.
+[2668.50 --> 2672.48]  When trouble or persecution comes because of the word, they quickly fall away.
+[2673.66 --> 2677.68]  And still others, like seed sown among the thorns, hear the word.
+[2678.28 --> 2683.46]  But the worries of this life and the deceitfulness of wealth and the desires for other things come in
+[2683.46 --> 2686.72]  and choke the word, making it unfruitful.
+[2687.42 --> 2695.44]  Others, like seed sown on good soil, hear the word, accept it, and produce a crop.
+[2696.16 --> 2700.94]  Some 30, some 60, some 100 times what was sown.
+[2701.68 --> 2702.92]  This is the word of the Lord.
+[2702.92 --> 2716.70]  So Jesus takes everyday stories like a farmer sowing seed and imbues them with spiritual and theological significance.
+[2716.70 --> 2725.16]  But what that means is we are working in the realm of metaphor and simile and analogy.
+[2725.98 --> 2737.78]  And so sometimes we miss the meaning that Jesus intended or we oversimplify the story and then we map onto it a wrong thing.
+[2737.78 --> 2743.64]  That's actually the second thing about parables that we've seen this summer, right?
+[2743.70 --> 2747.62]  That part of their intent is to make you think.
+[2748.24 --> 2756.44]  Or more specifically, part of the intent of parables is to make you rethink the sorts of things you thought you always knew.
+[2756.44 --> 2765.02]  Parables will introduce you to something that is meant to confuse and meant to challenge your assumptions.
+[2766.54 --> 2767.96]  We've said it here before.
+[2769.02 --> 2775.16]  If your reading of a parable doesn't do that, if it doesn't confuse you, if it doesn't challenge your assumptions,
+[2775.40 --> 2777.72]  you're probably misreading the parable.
+[2777.72 --> 2786.32]  Look again with your Bibles open at the words of Jesus, right in the middle of what we read in verse 11.
+[2787.82 --> 2788.18]  He says,
+[2788.18 --> 2794.66]  The secret of the kingdom of God has been given to you, but to those on the outside everything is said in parables,
+[2794.82 --> 2800.18]  so that they may be ever seeing but never perceiving.
+[2800.58 --> 2802.78]  Ever hearing but never understanding.
+[2803.08 --> 2805.96]  Otherwise they might turn and be forgiven.
+[2805.96 --> 2809.54]  Seeing but not perceiving.
+[2809.88 --> 2812.50]  Hearing but not understanding.
+[2813.62 --> 2819.12]  And so when you read the parables of Jesus, if you are a little confused, that's the point.
+[2820.50 --> 2821.98]  But hear this, okay?
+[2822.74 --> 2822.90]  Right?
+[2823.56 --> 2826.22]  The confusion isn't meant to drive you away.
+[2827.04 --> 2828.74]  It's meant to draw you in.
+[2830.32 --> 2830.48]  Right?
+[2830.48 --> 2834.48]  Jesus wants you to think deeply about these kinds of things.
+[2834.48 --> 2837.26]  Not just to settle for what you've always known.
+[2837.46 --> 2842.12]  To just blindly and passively accept what you've always believed.
+[2842.78 --> 2849.48]  Again, let me be really clear because it seems like sometimes we don't hear this, right?
+[2849.72 --> 2852.20]  Jesus invites your questions.
+[2853.20 --> 2853.32]  Right?
+[2853.36 --> 2855.26]  Christianity invites your doubts.
+[2856.02 --> 2858.68]  In fact, so much so that I want you to doubt your doubts.
+[2858.68 --> 2862.52]  Christianity isn't afraid of your questions.
+[2862.84 --> 2863.62]  Let's ask them.
+[2864.28 --> 2865.22]  Let's wrestle together.
+[2865.32 --> 2866.28]  Let's dig deep.
+[2866.48 --> 2867.80]  That's the point of the parables.
+[2868.86 --> 2868.98]  Right?
+[2869.06 --> 2873.20]  We didn't read it, but again, this is why I ask you to keep your Bibles open.
+[2873.32 --> 2878.06]  Verse 22 or 21 and 22.
+[2878.06 --> 2880.00]  Jesus says,
+[2880.00 --> 2883.44]  Do you bring in a lamp to put it under a bowl or a bed?
+[2883.88 --> 2885.62]  Instead, don't you put it on its stand?
+[2885.70 --> 2886.62]  And here's what I want you to hear.
+[2887.08 --> 2889.98]  For whatever is hidden is meant to be disclosed.
+[2890.14 --> 2893.94]  And whatever is concealed is meant to be brought out into the open.
+[2894.26 --> 2897.58]  If anyone has ears to hear, let them hear.
+[2899.48 --> 2902.34]  Whatever is hidden is meant to be disclosed.
+[2902.88 --> 2906.64]  Whatever is concealed is meant to be brought out into the open.
+[2906.64 --> 2910.82]  And that Klein Snodgrass, he's a Bible scholar, he says really simply,
+[2911.20 --> 2913.76]  Parables hide in order to reveal.
+[2915.72 --> 2920.20]  Parables are inviting us to ask hard questions about life and faith in God,
+[2920.26 --> 2924.60]  about the kingdom, about what is right and what is truth and what is true.
+[2925.06 --> 2928.56]  Parables are inviting us to wrestle with the idea of what is the good life,
+[2928.66 --> 2930.64]  what is truly beautiful,
+[2930.64 --> 2936.60]  what is meaning and what is meaningful and what is meaning based on in life.
+[2936.64 --> 2939.42]  There's a case in point here.
+[2939.52 --> 2943.08]  The parable that we read invites you to consider,
+[2943.60 --> 2948.48]  are you really asking those questions?
+[2949.24 --> 2953.24]  Are you really hearing Jesus' invitation?
+[2953.82 --> 2957.08]  Are your questions really about truth?
+[2957.08 --> 2961.26]  Or is all of this, whatever this may be for you right now,
+[2961.30 --> 2964.62]  is all of this just an experience of confirmation bias,
+[2964.76 --> 2965.78]  of preconceived notions,
+[2965.78 --> 2968.44]  and really just an excuse in the end to walk away?
+[2970.52 --> 2974.34]  Parables hide in order to reveal.
+[2974.34 --> 2980.92]  And the first thing to be revealed is that your heart,
+[2981.88 --> 2985.72]  right, your willingness to hear matters.
+[2986.66 --> 2990.36]  That's the theme of this message,
+[2990.44 --> 2992.78]  this parable of what we're digging into, right?
+[2992.86 --> 2997.48]  That how you hear and how you set yourself up to hear
+[2997.48 --> 3000.02]  matters for what you hear.
+[3000.02 --> 3004.10]  And if you actually hear what Jesus has to say.
+[3005.46 --> 3009.16]  Now, most of you probably have the same Bible that I do,
+[3009.24 --> 3010.78]  or a similar one.
+[3011.40 --> 3012.74]  In most of your Bibles,
+[3012.86 --> 3015.40]  there's probably a heading at the top of chapter 4.
+[3015.94 --> 3017.72]  Someone with a heading at the top of chapter 4.
+[3017.78 --> 3018.30]  What does it say?
+[3020.62 --> 3021.60]  Parable of the sower.
+[3021.94 --> 3022.30]  Perfect.
+[3022.70 --> 3023.04]  Thank you.
+[3023.10 --> 3024.52]  I'm glad that didn't backfire on me.
+[3025.02 --> 3026.12]  If yours says something different,
+[3026.24 --> 3026.40]  shh!
+[3026.40 --> 3029.22]  Parable of the sower.
+[3029.34 --> 3030.82]  Now, let me be clear,
+[3030.94 --> 3033.22]  because some of us are new to this faith thing, right?
+[3033.26 --> 3036.16]  These headings aren't part of the original text.
+[3036.38 --> 3039.40]  The Bible was written mostly in Hebrew and Greek.
+[3039.58 --> 3041.20]  It didn't have chapters or verses
+[3041.20 --> 3043.66]  or these fancy headings in it to help us organize.
+[3044.18 --> 3046.58]  These headings are put in by an editorial board,
+[3046.80 --> 3048.42]  in this case from Zondervan,
+[3048.84 --> 3051.26]  to help organize the content within it.
+[3051.58 --> 3052.20]  Now, they're good.
+[3052.20 --> 3054.32]  The point is,
+[3054.62 --> 3055.86]  sometimes,
+[3056.08 --> 3057.34]  they're a little misleading.
+[3058.14 --> 3060.60]  Because this parable isn't actually about the sower,
+[3060.74 --> 3061.74]  at least not primarily.
+[3063.14 --> 3064.82]  And it's not even about the seed,
+[3064.94 --> 3066.38]  at least not primarily.
+[3067.26 --> 3067.34]  Right?
+[3067.42 --> 3069.30]  The verse 14 tells us that the seed,
+[3069.44 --> 3071.00]  simply put, is the word.
+[3071.48 --> 3071.86]  Rather,
+[3072.32 --> 3075.48]  this parable is about the soils,
+[3076.08 --> 3078.84]  and the people that they represent in life,
+[3078.84 --> 3080.34]  and what they do,
+[3080.40 --> 3081.08]  or we do,
+[3081.18 --> 3081.80]  to hear,
+[3082.72 --> 3085.74]  and to show that we've heard the word.
+[3086.28 --> 3088.88]  This parable invites you to introspect,
+[3089.60 --> 3090.42]  to ask,
+[3090.84 --> 3093.22]  what am I doing to cultivate a heart,
+[3093.30 --> 3094.08]  or a soil,
+[3094.60 --> 3098.50]  that's going to receive the word,
+[3098.68 --> 3100.32]  and produce fruit?
+[3101.80 --> 3102.74]  But because of that,
+[3103.14 --> 3104.56]  and because many of us have,
+[3104.76 --> 3104.94]  in fact,
+[3104.98 --> 3106.64]  been around these stories,
+[3106.64 --> 3107.92]  for a really long time,
+[3108.42 --> 3110.24]  it's actually really easy,
+[3110.24 --> 3111.38]  to get distracted,
+[3111.72 --> 3112.82]  about the sower,
+[3113.06 --> 3113.84]  about the farmer.
+[3114.52 --> 3114.66]  Right?
+[3114.70 --> 3116.04]  And especially about how this,
+[3116.04 --> 3117.36]  farmer goes about,
+[3117.72 --> 3118.10]  sowing.
+[3118.98 --> 3119.18]  Right?
+[3119.24 --> 3120.46]  Some of you have heard this parable,
+[3120.56 --> 3121.16]  so many times,
+[3121.22 --> 3121.58]  that you've been,
+[3121.64 --> 3122.88]  been trained to think,
+[3122.96 --> 3124.20]  that the farmer just goes out,
+[3124.24 --> 3125.30]  and he wantonly,
+[3125.46 --> 3126.72]  is flinging seed,
+[3126.96 --> 3128.12]  wherever he needs to go,
+[3128.28 --> 3129.74]  liberally casting it aside,
+[3129.82 --> 3131.78]  without a care for where it may land.
+[3132.06 --> 3132.98]  Maybe he's hoping,
+[3133.10 --> 3134.60]  just to see what sticks.
+[3135.52 --> 3136.58]  And then we ask the question,
+[3136.64 --> 3137.54]  is that responsible?
+[3139.02 --> 3140.70]  Would a farmer really do that?
+[3141.02 --> 3141.30]  And then,
+[3141.54 --> 3143.36]  seeing maybe that it's not responsible,
+[3143.54 --> 3144.18]  what we end up doing,
+[3144.24 --> 3144.36]  right,
+[3144.38 --> 3145.78]  is we turn this parable,
+[3145.92 --> 3146.62]  into sort of a,
+[3146.62 --> 3148.42]  a Christianese moralism,
+[3148.42 --> 3148.96]  that says,
+[3149.10 --> 3150.54]  just push the gospel out,
+[3150.60 --> 3151.52]  wherever you can,
+[3151.80 --> 3152.44]  without thought,
+[3152.54 --> 3153.28]  or without discipline,
+[3153.42 --> 3154.40]  or without discipleship,
+[3154.44 --> 3155.58]  and see what sticks.
+[3156.02 --> 3157.84]  That part's not my responsibility.
+[3159.34 --> 3160.32]  You see what we do,
+[3160.36 --> 3162.44]  when we read the parable that way.
+[3163.16 --> 3165.38]  We absolve ourselves of responsibility,
+[3165.38 --> 3166.88]  for discipleship,
+[3167.20 --> 3167.92]  and for discipline,
+[3168.24 --> 3169.00]  and for connection.
+[3169.28 --> 3170.10]  We just throw it out,
+[3170.16 --> 3170.28]  and say,
+[3170.34 --> 3170.52]  whatever,
+[3171.42 --> 3172.06]  that's on you,
+[3172.48 --> 3172.70]  neighbor.
+[3173.26 --> 3173.84]  That's on you,
+[3173.94 --> 3175.30]  not yet believing friend.
+[3175.38 --> 3175.96]  That's on you,
+[3176.36 --> 3176.68]  stranger,
+[3176.82 --> 3177.72]  on the street corner.
+[3177.72 --> 3179.46]  Now,
+[3179.54 --> 3180.28]  let me quickly,
+[3180.44 --> 3181.98]  give you three things,
+[3182.06 --> 3183.18]  in response to that idea,
+[3183.30 --> 3184.22]  that reading of the parable,
+[3184.28 --> 3185.08]  which is so common.
+[3186.28 --> 3186.64]  In fact,
+[3186.70 --> 3187.52]  when I was in seminary,
+[3187.56 --> 3188.72]  I wrote a sermon on this parable,
+[3188.84 --> 3191.06]  and that's the tack I took with it.
+[3191.68 --> 3191.92]  But,
+[3192.00 --> 3193.14]  let me say this.
+[3193.30 --> 3193.56]  First,
+[3194.38 --> 3196.52]  the text never actually says,
+[3196.56 --> 3197.76]  or really even implies,
+[3197.86 --> 3198.60]  that the farmer,
+[3198.60 --> 3200.62]  is just flippantly throwing seed,
+[3200.72 --> 3201.96]  without regard for where it lands.
+[3203.42 --> 3203.56]  Right,
+[3203.56 --> 3204.00]  and so,
+[3204.18 --> 3204.76]  even though,
+[3204.92 --> 3207.66]  the liberality of the act,
+[3207.78 --> 3207.92]  right,
+[3207.98 --> 3209.16]  the image of the sower,
+[3209.30 --> 3210.58]  just throwing it,
+[3210.62 --> 3211.52]  wherever it will go,
+[3211.62 --> 3212.50]  whatever it may do,
+[3212.78 --> 3214.46]  even though that's a good preaching device,
+[3214.62 --> 3214.68]  like,
+[3214.94 --> 3215.24]  I mean,
+[3215.28 --> 3215.86]  that'll preach,
+[3215.96 --> 3216.08]  right,
+[3216.10 --> 3217.80]  that's a good rhetorical move,
+[3217.90 --> 3219.56]  it's not actually clear from the text,
+[3220.04 --> 3220.96]  that that's Jesus' point.
+[3222.60 --> 3222.92]  Second,
+[3222.92 --> 3225.28]  what we know,
+[3225.58 --> 3227.40]  from the farming practices,
+[3227.90 --> 3228.86]  in Palestine,
+[3229.04 --> 3229.48]  and Galilee,
+[3229.56 --> 3231.28]  around the time of Jesus,
+[3231.52 --> 3231.88]  is that,
+[3232.16 --> 3232.82]  a farmer,
+[3232.82 --> 3234.34]  would walk the field,
+[3234.52 --> 3235.48]  with his seed,
+[3235.88 --> 3236.84]  scattering it out,
+[3236.92 --> 3237.60]  into rows,
+[3237.76 --> 3238.90]  and then another farmer,
+[3238.90 --> 3240.74]  would follow closely behind,
+[3241.12 --> 3241.88]  with a plow,
+[3242.84 --> 3244.08]  turning the soil over,
+[3244.72 --> 3245.74]  and covering the seed.
+[3247.26 --> 3247.44]  Now,
+[3247.46 --> 3248.56]  this helps us understand,
+[3248.76 --> 3250.00]  why the birds,
+[3250.08 --> 3251.34]  are only able to gather,
+[3251.50 --> 3252.30]  and eat the seeds,
+[3252.30 --> 3253.78]  that are sown along the path,
+[3254.66 --> 3254.88]  right,
+[3254.90 --> 3256.26]  that they don't get the other seeds,
+[3256.70 --> 3257.82]  because the second farmer,
+[3257.94 --> 3258.82]  has come along with the plow,
+[3258.88 --> 3259.52]  and turned it over,
+[3259.64 --> 3259.86]  and so,
+[3260.12 --> 3261.60]  those things that are along the path,
+[3261.60 --> 3262.90]  where the plow can't reach,
+[3263.74 --> 3264.28]  are going to let,
+[3264.40 --> 3264.90]  be exposed,
+[3265.02 --> 3265.68]  so birds can come,
+[3265.78 --> 3266.48]  and grab those,
+[3266.76 --> 3267.44]  but not the ones,
+[3267.52 --> 3268.28]  that get turned over,
+[3268.78 --> 3269.50]  into the soil.
+[3271.04 --> 3271.64]  Now again,
+[3271.82 --> 3272.34]  notice there,
+[3272.44 --> 3272.94]  Jesus says,
+[3273.06 --> 3274.04]  along the path,
+[3274.68 --> 3274.92]  right,
+[3275.02 --> 3275.24]  not,
+[3275.62 --> 3276.34]  where the seed,
+[3276.40 --> 3277.12]  couldn't be plowed in,
+[3277.54 --> 3278.62]  the rest,
+[3279.98 --> 3281.34]  it rests on a surface,
+[3281.34 --> 3281.98]  that's open,
+[3282.10 --> 3283.10]  and available to the birds,
+[3283.24 --> 3284.66]  but it's along the side,
+[3284.68 --> 3285.14]  of the path,
+[3285.18 --> 3286.00]  it's not like,
+[3286.06 --> 3287.08]  it's been thrown out,
+[3287.16 --> 3288.12]  onto the road.
+[3288.12 --> 3290.52]  Now we also know,
+[3290.78 --> 3291.42]  from this time,
+[3291.54 --> 3292.38]  that the soil,
+[3292.72 --> 3293.26]  of Palestine,
+[3293.44 --> 3293.96]  and Galilee,
+[3294.56 --> 3296.26]  is especially shallow,
+[3296.50 --> 3297.10]  and rocky.
+[3297.28 --> 3297.88]  Now it's,
+[3297.88 --> 3299.20]  productive soil,
+[3299.44 --> 3300.30]  but there are tons,
+[3300.38 --> 3301.28]  of rocks in this field,
+[3301.64 --> 3303.02]  and that makes sense,
+[3303.34 --> 3303.50]  right,
+[3303.56 --> 3303.80]  because,
+[3304.34 --> 3305.30]  I don't know if you've ever been,
+[3305.50 --> 3306.08]  to Palestine,
+[3306.22 --> 3306.64]  and Galilee,
+[3306.72 --> 3307.56]  but most of the region,
+[3307.68 --> 3308.08]  is desert,
+[3308.72 --> 3308.90]  right,
+[3308.94 --> 3310.08]  it's not the flood plain,
+[3310.18 --> 3311.14]  of Glen Valley,
+[3311.26 --> 3312.18]  or Sumas Prairie,
+[3312.28 --> 3313.44]  which is rich,
+[3313.64 --> 3315.06]  in nutrient soil,
+[3315.26 --> 3316.46]  because the water table,
+[3316.46 --> 3317.12]  is so high,
+[3317.26 --> 3317.98]  and because it's all,
+[3318.16 --> 3318.82]  flooded down,
+[3318.92 --> 3319.46]  from the mountains,
+[3319.58 --> 3320.30]  full of nutrients,
+[3320.38 --> 3320.96]  that it's collected,
+[3321.36 --> 3322.02]  along the way,
+[3322.12 --> 3322.74]  for millennia.
+[3324.68 --> 3325.12]  Finally,
+[3325.42 --> 3326.50]  we also know,
+[3327.28 --> 3327.56]  that,
+[3327.94 --> 3328.90]  sometimes,
+[3329.76 --> 3330.50]  there would be,
+[3330.70 --> 3331.28]  two plows,
+[3331.60 --> 3332.52]  in the process.
+[3333.12 --> 3334.44]  One would go through first,
+[3334.54 --> 3335.30]  the farmer would seed,
+[3335.44 --> 3336.22]  the other would follow,
+[3336.50 --> 3337.26]  and turn over,
+[3337.70 --> 3338.14]  but,
+[3338.26 --> 3339.24]  not always.
+[3340.44 --> 3340.86]  In fact,
+[3341.22 --> 3342.24]  it was about 50-50,
+[3342.58 --> 3343.44]  if there's two plows,
+[3343.82 --> 3344.22]  and so,
+[3344.34 --> 3345.58]  if there isn't two plows,
+[3345.68 --> 3346.36]  it's not really,
+[3346.36 --> 3347.06]  a surprise,
+[3347.40 --> 3347.64]  right,
+[3347.68 --> 3348.54]  that there's weeds,
+[3348.64 --> 3349.28]  and thorns,
+[3349.38 --> 3350.66]  that get plowed in,
+[3350.94 --> 3351.98]  with the seed,
+[3352.12 --> 3353.20]  when the following plow,
+[3353.28 --> 3353.98]  comes along,
+[3354.06 --> 3354.84]  and that it grows up,
+[3354.92 --> 3355.48]  with the seeds,
+[3355.52 --> 3356.40]  and then chokes it out.
+[3357.74 --> 3358.08]  Now,
+[3358.12 --> 3358.64]  like the seed,
+[3358.72 --> 3359.56]  along the path,
+[3359.94 --> 3360.54]  it's not like,
+[3360.54 --> 3361.16]  there's a pile,
+[3361.28 --> 3361.94]  of thorn bushes,
+[3362.08 --> 3362.36]  somewhere,
+[3362.46 --> 3363.12]  that the farmer's like,
+[3363.16 --> 3363.26]  yeah,
+[3363.30 --> 3363.98]  I'll throw some seed,
+[3364.08 --> 3364.26]  in there,
+[3364.30 --> 3364.92]  and see what happens.
+[3365.82 --> 3366.38]  This is just,
+[3366.46 --> 3368.40]  leftover,
+[3369.12 --> 3370.12]  from the previous cycle,
+[3370.78 --> 3371.32]  of cropping.
+[3372.92 --> 3373.68]  And then third,
+[3373.80 --> 3374.68]  and most significantly,
+[3374.68 --> 3376.08]  to dispel this,
+[3376.14 --> 3377.32]  way of reading the text,
+[3377.82 --> 3379.18]  in Jesus' explanation,
+[3379.18 --> 3380.04]  of the parable,
+[3380.78 --> 3381.70]  which is why it's so important,
+[3381.78 --> 3382.62]  to read the explanation,
+[3383.26 --> 3383.40]  right,
+[3383.44 --> 3384.40]  in Jesus' explanation,
+[3384.52 --> 3384.90]  of the parable,
+[3385.06 --> 3386.02]  he doesn't say,
+[3386.10 --> 3386.62]  a thing,
+[3386.70 --> 3387.46]  about the farmer,
+[3388.00 --> 3389.38]  right,
+[3389.42 --> 3390.06]  and the only thing,
+[3390.14 --> 3391.04]  he says about the seed,
+[3391.16 --> 3392.00]  is that it's the word.
+[3392.74 --> 3393.98]  All the explanation,
+[3394.38 --> 3395.74]  is focused on the soils,
+[3396.58 --> 3397.24]  the place,
+[3397.30 --> 3398.02]  where the seed falls.
+[3399.10 --> 3399.42]  Notice,
+[3399.72 --> 3400.68]  exactly,
+[3400.68 --> 3401.06]  then,
+[3401.80 --> 3402.42]  what he says,
+[3402.62 --> 3404.44]  in verse 15.
+[3405.58 --> 3405.74]  All right,
+[3405.82 --> 3406.44]  some people,
+[3406.70 --> 3407.56]  and so now we're focusing,
+[3407.78 --> 3408.26]  on people,
+[3408.48 --> 3408.64]  right,
+[3408.68 --> 3409.26]  not the sower,
+[3409.64 --> 3410.30]  some people,
+[3410.44 --> 3411.38]  are like the seed,
+[3411.72 --> 3412.70]  along the path,
+[3412.72 --> 3414.28]  as soon as they hear it.
+[3414.60 --> 3414.92]  And then,
+[3415.04 --> 3415.68]  the next one,
+[3416.40 --> 3416.68]  others,
+[3416.92 --> 3417.50]  like seed,
+[3417.84 --> 3418.80]  sown on rocky places,
+[3418.94 --> 3419.72]  hear the word,
+[3419.98 --> 3420.76]  and then the next one,
+[3420.80 --> 3421.30]  still others,
+[3421.40 --> 3421.98]  like seed,
+[3422.66 --> 3425.06]  sown among the thorns,
+[3425.28 --> 3426.06]  hear the word,
+[3426.14 --> 3426.68]  and then finally,
+[3426.78 --> 3427.32]  in the last one,
+[3427.68 --> 3427.94]  others,
+[3428.14 --> 3428.66]  like seed,
+[3428.66 --> 3429.96]  sown on good soil,
+[3430.22 --> 3431.60]  hear the word.
+[3432.30 --> 3432.48]  Right,
+[3432.50 --> 3433.48]  you see what's going on here.
+[3433.76 --> 3434.48]  Each time,
+[3435.16 --> 3436.62]  it's about how the word,
+[3436.96 --> 3437.76]  is heard.
+[3438.98 --> 3439.12]  Right,
+[3439.16 --> 3440.10]  and that makes sense,
+[3440.30 --> 3441.14]  given the context.
+[3441.24 --> 3442.14]  We've looked at it already,
+[3442.20 --> 3443.06]  we've pointed it out already,
+[3443.14 --> 3444.54]  but the parable,
+[3444.70 --> 3446.22]  the explanation of the parable,
+[3446.56 --> 3447.64]  is bracketed,
+[3448.36 --> 3449.86]  by a version of the phrase,
+[3449.96 --> 3451.64]  whoever has ears to hear,
+[3452.00 --> 3454.28]  let them hear.
+[3456.20 --> 3457.30]  And that's the thing.
+[3458.66 --> 3460.44]  Because what matters,
+[3461.02 --> 3461.90]  and what we see,
+[3462.76 --> 3465.34]  is that it's a very particular kind,
+[3465.86 --> 3466.44]  of hearing.
+[3467.72 --> 3468.32]  Because,
+[3468.86 --> 3469.38]  we read it,
+[3469.42 --> 3469.56]  right,
+[3469.62 --> 3471.12]  every one of the,
+[3471.12 --> 3472.38]  peoples,
+[3472.74 --> 3473.52]  and groups,
+[3473.86 --> 3475.24]  heard the word.
+[3476.24 --> 3476.36]  Right,
+[3476.40 --> 3478.02]  the hearing itself,
+[3478.34 --> 3479.46]  wasn't enough.
+[3480.40 --> 3481.84]  The hearing is minimally required,
+[3482.02 --> 3482.98]  and so it is still required,
+[3483.26 --> 3485.60]  but a certain kind of hearing,
+[3485.60 --> 3486.44]  is what sort of,
+[3486.54 --> 3487.18]  takes it home.
+[3487.18 --> 3489.10]  And then,
+[3489.24 --> 3489.40]  so,
+[3490.10 --> 3491.74]  with the time that we have,
+[3492.34 --> 3493.32]  remaining to us,
+[3493.40 --> 3493.64]  let's,
+[3493.64 --> 3496.46]  look at the four kinds of hearing,
+[3496.92 --> 3498.24]  in this parable.
+[3499.00 --> 3499.98]  And so first,
+[3500.32 --> 3501.08]  you have the seed,
+[3501.22 --> 3501.70]  that's sown,
+[3501.92 --> 3503.02]  along the path.
+[3503.18 --> 3504.30]  They hear the word,
+[3504.70 --> 3505.30]  but then Satan,
+[3505.54 --> 3506.12]  like a bird,
+[3506.28 --> 3506.86]  comes and,
+[3507.20 --> 3508.12]  takes it away from them.
+[3509.28 --> 3510.38]  These are the kinds of,
+[3510.52 --> 3511.10]  of people,
+[3511.24 --> 3511.74]  who don't,
+[3511.94 --> 3513.00]  even have a chance,
+[3513.08 --> 3514.32]  for it to root.
+[3514.32 --> 3515.24]  Now,
+[3515.28 --> 3515.80]  I think,
+[3516.16 --> 3516.78]  in application,
+[3517.00 --> 3518.62]  this is the kind of person,
+[3518.98 --> 3521.04]  who doesn't even give the word,
+[3521.14 --> 3521.78]  a chance.
+[3522.14 --> 3522.54]  The person,
+[3522.62 --> 3523.42]  who doesn't even bother,
+[3523.42 --> 3524.58]  to listen to you,
+[3524.62 --> 3525.84]  if you try to talk to them,
+[3526.02 --> 3527.10]  about life and faith,
+[3527.16 --> 3527.48]  but instead,
+[3527.56 --> 3528.90]  they just dismiss you.
+[3529.86 --> 3530.46]  And this is someone,
+[3530.54 --> 3531.30]  closed off,
+[3531.36 --> 3532.92]  from even the possibility,
+[3532.92 --> 3533.98]  of a truth,
+[3534.06 --> 3535.28]  that they don't already know.
+[3536.74 --> 3536.92]  Now,
+[3536.96 --> 3537.20]  if we,
+[3537.32 --> 3538.70]  look at the,
+[3538.70 --> 3540.12]  the quote from Isaiah 6,
+[3540.20 --> 3540.48]  in fact,
+[3540.48 --> 3541.68]  we expand out,
+[3542.42 --> 3543.18]  and we're not going to turn,
+[3543.26 --> 3543.80]  to Isaiah 6,
+[3543.84 --> 3544.46]  to look at it,
+[3544.50 --> 3546.62]  but Matthew 13,
+[3546.62 --> 3547.56]  there's also a telling,
+[3547.56 --> 3548.56]  of this parable,
+[3549.30 --> 3550.06]  and it includes,
+[3550.16 --> 3551.34]  this expanded quote,
+[3551.42 --> 3551.86]  from Isaiah,
+[3551.98 --> 3553.32]  but in Isaiah 6,
+[3553.40 --> 3554.00]  I think what,
+[3554.24 --> 3555.44]  this first seed group,
+[3555.64 --> 3556.28]  soil group,
+[3556.32 --> 3557.14]  is talking about,
+[3557.50 --> 3558.20]  is expanded,
+[3558.50 --> 3559.10]  Isaiah says,
+[3559.26 --> 3560.24]  in chapter 6,
+[3560.30 --> 3560.68]  verse 10,
+[3561.22 --> 3561.98]  make the heart,
+[3562.06 --> 3563.62]  of this people calloused,
+[3564.02 --> 3565.12]  make their ears dull,
+[3565.24 --> 3566.40]  and close their eyes.
+[3567.96 --> 3568.14]  Now,
+[3568.20 --> 3569.24]  in Isaiah's day,
+[3569.64 --> 3569.86]  right,
+[3569.86 --> 3571.52]  some 800 years,
+[3571.64 --> 3571.88]  700,
+[3571.94 --> 3572.70]  800 years before,
+[3573.64 --> 3575.00]  this is the religious,
+[3575.00 --> 3575.98]  leaders,
+[3576.36 --> 3577.38]  that caused,
+[3577.58 --> 3578.70]  the people of God,
+[3578.74 --> 3579.34]  the people of Israel,
+[3579.42 --> 3580.16]  to be carried off,
+[3580.20 --> 3580.84]  into exile.
+[3582.00 --> 3583.32]  And in Jesus' day,
+[3583.40 --> 3584.44]  this is the Pharisees,
+[3584.50 --> 3585.56]  and the teachers of the law,
+[3585.66 --> 3586.64]  who missed Jesus,
+[3586.74 --> 3587.64]  as the Messiah,
+[3588.06 --> 3588.38]  and who,
+[3588.46 --> 3589.48]  who missed him,
+[3589.82 --> 3591.26]  revealing the kingdom come,
+[3591.28 --> 3591.96]  even though,
+[3592.08 --> 3592.96]  he was right in front,
+[3592.96 --> 3593.60]  of their eyes.
+[3594.84 --> 3595.64]  And then maybe,
+[3595.84 --> 3596.92]  this carries forward,
+[3597.36 --> 3598.48]  maybe this is the person,
+[3598.60 --> 3599.64]  who misses the truth,
+[3599.64 --> 3600.54]  of the gospel,
+[3600.92 --> 3602.02]  because of an idea,
+[3602.30 --> 3603.82]  or an experience,
+[3604.06 --> 3605.00]  of Christians,
+[3605.66 --> 3607.74]  that didn't match up,
+[3608.42 --> 3609.76]  with the teachings of Christ.
+[3610.84 --> 3611.38]  And so now,
+[3611.46 --> 3612.36]  there's no changing,
+[3612.48 --> 3613.50]  that person's mind,
+[3613.92 --> 3614.82]  or heart.
+[3614.92 --> 3616.26]  There's no opportunity,
+[3616.80 --> 3617.64]  for conversation.
+[3618.16 --> 3618.56]  Maybe,
+[3618.86 --> 3619.82]  this is the,
+[3619.82 --> 3621.26]  the militant atheist,
+[3621.62 --> 3623.02]  who won't even fathom,
+[3623.10 --> 3623.82]  the possibility,
+[3623.82 --> 3625.26]  of God revealed in Jesus,
+[3625.26 --> 3626.38]  as an interesting,
+[3626.38 --> 3627.36]  thought experiment.
+[3628.64 --> 3629.66]  This is a person,
+[3629.78 --> 3630.58]  who refuses,
+[3630.58 --> 3632.38]  to engage.
+[3635.42 --> 3636.38]  This person,
+[3636.54 --> 3637.26]  could never hear,
+[3638.18 --> 3639.18]  and never gives themselves,
+[3639.32 --> 3639.90]  an opportunity,
+[3640.42 --> 3641.32]  to hear.
+[3644.74 --> 3645.32]  Now,
+[3645.36 --> 3646.44]  the second soil pipe,
+[3646.96 --> 3648.16]  is particularly,
+[3648.16 --> 3649.42]  interesting to me,
+[3649.54 --> 3650.48]  at least for this morning.
+[3650.48 --> 3651.84]  Right,
+[3651.88 --> 3652.50]  I think,
+[3652.66 --> 3653.64]  that in our,
+[3653.64 --> 3656.40]  post-Christian age,
+[3656.50 --> 3657.30]  of what,
+[3657.44 --> 3658.30]  demographers,
+[3658.68 --> 3659.58]  and sociologists,
+[3659.76 --> 3660.68]  called duns,
+[3660.72 --> 3661.12]  that is people,
+[3661.24 --> 3662.24]  who are done with church,
+[3662.32 --> 3662.54]  or the,
+[3662.54 --> 3663.70]  the de-churched,
+[3663.76 --> 3664.12]  sometimes,
+[3664.22 --> 3664.50]  that's people,
+[3664.56 --> 3665.04]  who grew up,
+[3665.08 --> 3666.00]  but have left,
+[3666.26 --> 3667.20]  in our age,
+[3667.26 --> 3668.54]  of deconstruction,
+[3668.88 --> 3669.02]  right,
+[3669.06 --> 3669.64]  that is people,
+[3669.64 --> 3670.52]  who at one time,
+[3670.86 --> 3671.26]  believed,
+[3671.38 --> 3671.70]  but now,
+[3671.80 --> 3672.40]  for a huge,
+[3672.40 --> 3673.64]  host of reasons,
+[3674.20 --> 3674.84]  some of them,
+[3674.94 --> 3675.74]  very legitimate,
+[3676.16 --> 3676.74]  no longer,
+[3676.94 --> 3677.50]  say they do.
+[3678.30 --> 3678.84]  Jesus says,
+[3679.02 --> 3679.82]  that these people,
+[3680.06 --> 3681.20]  are like seeds,
+[3681.26 --> 3682.70]  sown on rocky places,
+[3682.70 --> 3683.86]  they hear the word,
+[3683.94 --> 3684.42]  and at once,
+[3684.54 --> 3685.60]  receive it with joy,
+[3686.44 --> 3687.68]  but since they have no root,
+[3688.20 --> 3689.58]  they last only a short time,
+[3689.70 --> 3690.54]  and when trouble,
+[3690.68 --> 3691.76]  or persecution comes,
+[3692.28 --> 3692.86]  they quickly,
+[3693.42 --> 3693.96]  fall away.
+[3695.32 --> 3695.98]  And what I'm interested,
+[3696.40 --> 3697.72]  for our focus this morning,
+[3698.22 --> 3699.72]  is that part that Jesus says,
+[3699.72 --> 3701.44]  about receiving the word,
+[3701.86 --> 3702.56]  with joy.
+[3703.98 --> 3704.78]  Because you see,
+[3704.78 --> 3707.82]  in the church today,
+[3708.48 --> 3709.18]  and we are,
+[3709.18 --> 3710.46]  implicit in this,
+[3710.82 --> 3711.62]  there's a sort of,
+[3712.44 --> 3713.38]  I don't know what else to call it,
+[3713.42 --> 3715.44]  but an evangelical temptation,
+[3716.22 --> 3716.36]  right,
+[3716.38 --> 3717.20]  that kind of developed,
+[3717.32 --> 3718.44]  in the 20th century,
+[3719.04 --> 3720.96]  and got further,
+[3721.08 --> 3722.14]  ensconced in us,
+[3722.26 --> 3723.10]  in the rise,
+[3723.16 --> 3723.60]  and development,
+[3723.72 --> 3724.56]  of post-modernity,
+[3724.66 --> 3725.94]  carries into our own age,
+[3726.32 --> 3726.52]  right,
+[3726.52 --> 3727.76]  there's this idea,
+[3728.30 --> 3730.22]  that exists,
+[3730.48 --> 3731.48]  in the system,
+[3731.66 --> 3733.32]  that is a church community,
+[3733.32 --> 3734.94]  to make,
+[3735.38 --> 3737.24]  an emotional response,
+[3738.16 --> 3738.94]  the arbiter,
+[3739.28 --> 3740.18]  or the determiner,
+[3740.56 --> 3741.86]  of an authentic,
+[3741.86 --> 3742.94]  belief.
+[3744.50 --> 3745.10]  And so,
+[3745.38 --> 3746.84]  if I don't cry,
+[3747.50 --> 3748.06]  in worship,
+[3748.88 --> 3750.38]  if I don't raise my hands,
+[3750.64 --> 3751.88]  if I don't dance,
+[3752.76 --> 3754.14]  maybe I don't actually believe.
+[3755.80 --> 3757.72]  And what Jesus is saying here,
+[3757.88 --> 3758.14]  is that,
+[3758.40 --> 3760.08]  an emotional response,
+[3760.44 --> 3761.50]  in and of itself,
+[3761.50 --> 3763.64]  is not a good gauge,
+[3763.76 --> 3764.38]  of authenticity.
+[3765.96 --> 3767.40]  And I think that this is something,
+[3767.54 --> 3768.32]  we need to hear.
+[3769.34 --> 3769.52]  Right,
+[3769.54 --> 3770.54]  in my experience,
+[3770.84 --> 3771.66]  particularly,
+[3772.56 --> 3773.94]  in talking to young men,
+[3774.86 --> 3775.80]  though not exclusively,
+[3776.84 --> 3778.04]  but I have talked with a lot,
+[3778.10 --> 3778.64]  of young men,
+[3779.10 --> 3780.46]  people in their 20s,
+[3780.46 --> 3781.44]  who are like,
+[3781.90 --> 3783.46]  I don't feel,
+[3784.46 --> 3785.86]  my faith,
+[3786.10 --> 3787.40]  the way other people,
+[3787.60 --> 3787.94]  feel it,
+[3787.98 --> 3788.76]  and the way I see,
+[3788.88 --> 3789.42]  other people,
+[3789.42 --> 3790.22]  feel it.
+[3790.36 --> 3791.38]  And from that,
+[3791.44 --> 3792.26]  they wonder,
+[3792.76 --> 3793.70]  maybe that means,
+[3793.78 --> 3794.58]  it's not true for me.
+[3795.32 --> 3796.46]  Maybe it's not real,
+[3796.46 --> 3797.18]  for me.
+[3798.46 --> 3798.88]  Now,
+[3798.94 --> 3800.02]  I want to ask those questions,
+[3800.02 --> 3800.52]  with you.
+[3801.88 --> 3802.66]  But let's,
+[3802.98 --> 3804.24]  in asking those questions,
+[3804.62 --> 3806.14]  let's not make the mistake,
+[3806.30 --> 3807.44]  of assuming that joy,
+[3807.60 --> 3808.88]  or an emotional response,
+[3809.10 --> 3810.16]  is the only way,
+[3810.32 --> 3811.02]  to affirm,
+[3811.36 --> 3812.14]  your belief,
+[3812.32 --> 3812.94]  and your faith,
+[3813.06 --> 3813.86]  and the truth,
+[3813.94 --> 3815.12]  of that in you.
+[3816.70 --> 3816.88]  Right,
+[3816.92 --> 3817.22]  in fact,
+[3817.22 --> 3818.40]  Jesus' point here,
+[3818.48 --> 3819.42]  in this part of the parable,
+[3819.70 --> 3821.64]  is that there is a better gauge,
+[3821.64 --> 3822.86]  to authenticity,
+[3822.86 --> 3823.88]  of belief,
+[3824.26 --> 3825.42]  the gauge,
+[3826.24 --> 3827.12]  to whether or not,
+[3827.22 --> 3827.90]  you have heard,
+[3828.10 --> 3828.70]  and believe,
+[3829.10 --> 3830.00]  what Jesus says,
+[3830.10 --> 3831.34]  and we'll end with that.
+[3832.28 --> 3833.00]  But for now,
+[3833.56 --> 3834.08]  hear this,
+[3835.24 --> 3836.62]  an emotional response,
+[3836.72 --> 3837.68]  to the words of Jesus,
+[3837.86 --> 3838.44]  is not,
+[3838.62 --> 3839.26]  in and of itself,
+[3839.60 --> 3840.46]  determinative,
+[3840.70 --> 3842.00]  for the veracity,
+[3842.48 --> 3843.02]  of them,
+[3843.10 --> 3844.30]  in your own heart,
+[3844.46 --> 3844.90]  and life.
+[3844.90 --> 3845.22]  Right,
+[3847.22 --> 3849.70]  it is true,
+[3850.10 --> 3852.34]  even if it doesn't,
+[3852.34 --> 3853.00]  feel,
+[3853.56 --> 3854.00]  true,
+[3854.50 --> 3855.08]  in the moment.
+[3856.12 --> 3856.32]  Now,
+[3856.38 --> 3857.18]  I'm not minimizing,
+[3857.32 --> 3858.28]  the role of our emotions,
+[3858.42 --> 3859.08]  and our feelings,
+[3859.36 --> 3860.20]  don't hear that,
+[3860.28 --> 3860.92]  because that is,
+[3861.14 --> 3861.72]  critical,
+[3862.10 --> 3862.74]  for who we are,
+[3862.78 --> 3863.76]  as human beings.
+[3864.92 --> 3865.84]  But truth,
+[3866.06 --> 3867.26]  is not contingent,
+[3867.30 --> 3868.26]  upon my feeling,
+[3868.34 --> 3869.34]  like it is true.
+[3869.68 --> 3870.02]  And so,
+[3870.14 --> 3871.00]  if it doesn't,
+[3871.08 --> 3872.02]  feel the way,
+[3872.10 --> 3873.08]  you expect it,
+[3873.18 --> 3874.00]  to feel,
+[3874.00 --> 3874.72]  perhaps,
+[3874.72 --> 3874.82]  perhaps,
+[3874.96 --> 3875.88]  what we need to ask,
+[3875.98 --> 3876.76]  is the question of,
+[3877.22 --> 3879.20]  what are you hearing?
+[3880.32 --> 3881.34]  What are you,
+[3881.34 --> 3882.64]  believing?
+[3883.74 --> 3884.04]  Because,
+[3884.28 --> 3887.06]  if an emotional response,
+[3887.26 --> 3888.56]  becomes the target,
+[3889.10 --> 3890.14]  that might actually,
+[3890.14 --> 3891.32]  have the impact,
+[3891.42 --> 3892.74]  of becoming the foundation.
+[3894.16 --> 3894.36]  Right,
+[3894.40 --> 3895.20]  you see how that works?
+[3895.62 --> 3895.78]  Right,
+[3895.80 --> 3896.92]  if what we're shooting for,
+[3896.98 --> 3898.44]  is an emotional experience,
+[3898.48 --> 3899.30]  of something,
+[3899.46 --> 3899.90]  or other,
+[3900.24 --> 3900.46]  right,
+[3900.46 --> 3901.94]  then what we do,
+[3902.02 --> 3902.76]  is we build,
+[3902.76 --> 3904.14]  our experience of faith,
+[3904.34 --> 3904.50]  on that,
+[3904.66 --> 3906.56]  on those emotional experiences.
+[3906.72 --> 3906.96]  And then,
+[3907.14 --> 3907.88]  when we go through,
+[3907.92 --> 3908.88]  a season of trouble,
+[3909.10 --> 3909.78]  or hardship,
+[3910.12 --> 3910.72]  or doubt,
+[3910.94 --> 3912.26]  or a dark night of the soul,
+[3912.30 --> 3912.90]  when we go through,
+[3912.94 --> 3914.12]  an experience of death,
+[3914.34 --> 3915.28]  or loss,
+[3915.58 --> 3917.26]  or any form of tribulation,
+[3917.58 --> 3918.50]  where our emotions,
+[3918.70 --> 3919.84]  are vastly different,
+[3920.00 --> 3921.00]  than that mountaintop,
+[3921.04 --> 3922.02]  experience of joy,
+[3922.14 --> 3923.62]  that will rock your faith.
+[3925.50 --> 3927.22]  But there's a better foundation.
+[3927.22 --> 3931.24]  There's a stronger foundation.
+[3932.42 --> 3933.74]  There is a sure,
+[3933.98 --> 3934.72]  and certain,
+[3935.72 --> 3936.60]  foundation.
+[3939.50 --> 3940.02]  Now,
+[3940.10 --> 3941.00]  of the third soil,
+[3941.98 --> 3942.66]  Jesus says,
+[3943.62 --> 3945.72]  still others are like seed,
+[3945.84 --> 3946.96]  sown among thorns.
+[3947.38 --> 3948.60]  But the worries of this life,
+[3948.70 --> 3949.78]  the deceitfulness of wealth,
+[3949.98 --> 3951.44]  and the desires for other things,
+[3951.54 --> 3951.98]  come in,
+[3952.08 --> 3953.20]  and choke out the word,
+[3953.60 --> 3955.36]  making it unfruitful.
+[3957.22 --> 3957.50]  Now,
+[3957.52 --> 3959.04]  I think this is really about,
+[3959.34 --> 3961.02]  asking yourself the question,
+[3961.48 --> 3962.50]  whose word,
+[3962.60 --> 3963.90]  will you listen to?
+[3965.24 --> 3966.06]  Because life,
+[3966.30 --> 3966.86]  and culture,
+[3967.10 --> 3967.76]  and the world,
+[3967.88 --> 3969.86]  are speaking a word to us.
+[3970.32 --> 3970.42]  Right?
+[3970.44 --> 3971.82]  They're forming us,
+[3972.06 --> 3973.68]  and passively,
+[3973.84 --> 3974.38]  and actively,
+[3974.82 --> 3975.74]  in a message.
+[3976.20 --> 3976.28]  Right?
+[3976.48 --> 3977.44]  Will you believe,
+[3977.76 --> 3978.94]  what the world says,
+[3978.96 --> 3979.92]  about the good life?
+[3980.16 --> 3980.98]  Will you believe,
+[3981.06 --> 3982.26]  in the promises of wealth?
+[3982.38 --> 3983.08]  Will you believe,
+[3983.14 --> 3984.90]  in the vision of prosperity,
+[3984.90 --> 3986.22]  to bring you joy?
+[3986.22 --> 3987.22]  Or,
+[3987.62 --> 3988.62]  will you believe,
+[3988.82 --> 3989.84]  in the one who says,
+[3990.18 --> 3991.38]  do not worry?
+[3992.12 --> 3993.54]  Look at how your father in heaven,
+[3993.66 --> 3995.26]  cares for the birds of the air,
+[3995.30 --> 3996.02]  and provides for them.
+[3996.26 --> 3997.28]  Look at how your father in heaven,
+[3997.38 --> 3999.08]  clothes the hills,
+[3999.20 --> 3999.78]  and the valleys,
+[3999.88 --> 4000.78]  with beautiful flowers.
+[4001.14 --> 4003.08]  Will he not also care for you,
+[4003.20 --> 4004.66]  and provide for you?
+[4004.78 --> 4006.14]  Will you listen to the one,
+[4006.22 --> 4007.12]  who invites you,
+[4007.40 --> 4009.00]  to take up your cross daily,
+[4009.24 --> 4010.22]  and to follow him,
+[4010.52 --> 4010.92]  promising,
+[4011.22 --> 4012.06]  that the only way,
+[4012.16 --> 4013.18]  to gain life,
+[4013.26 --> 4014.44]  is to lose it.
+[4014.44 --> 4015.76]  That the only way,
+[4015.80 --> 4017.22]  to truly be rich,
+[4017.22 --> 4018.42]  in this life,
+[4018.50 --> 4019.86]  is to give your riches,
+[4020.22 --> 4020.62]  away.
+[4020.74 --> 4021.42]  That the only way,
+[4021.52 --> 4022.44]  to be great,
+[4022.54 --> 4023.52]  is to become the least.
+[4023.62 --> 4024.18]  The only way,
+[4024.26 --> 4024.94]  to win,
+[4025.04 --> 4026.08]  is to lose.
+[4026.32 --> 4027.76]  This counterintuitive,
+[4027.76 --> 4028.96]  economy of the kingdom,
+[4029.06 --> 4029.46]  of Jesus,
+[4029.66 --> 4030.42]  is calling us,
+[4030.48 --> 4031.60]  to something different.
+[4031.74 --> 4032.86]  But whose word,
+[4032.96 --> 4034.38]  will you listen to?
+[4035.26 --> 4036.00]  Which word,
+[4036.08 --> 4036.74]  will you believe?
+[4037.70 --> 4038.60]  That's the question,
+[4038.66 --> 4039.42]  of the third soil.
+[4039.58 --> 4040.36]  Is your heart,
+[4040.48 --> 4041.04]  compelled,
+[4041.30 --> 4042.08]  by the beauty,
+[4042.08 --> 4042.84]  of the gospel?
+[4043.28 --> 4043.98]  Or are you,
+[4044.10 --> 4044.42]  clinging,
+[4044.70 --> 4046.04]  to lesser glories,
+[4046.04 --> 4047.58]  that will fade away,
+[4047.86 --> 4048.88]  and will destroy,
+[4049.20 --> 4049.96]  and disappoint?
+[4054.30 --> 4054.84]  Now,
+[4055.40 --> 4057.44]  it is these kinds,
+[4057.44 --> 4058.24]  of questions,
+[4058.80 --> 4061.26]  that help us,
+[4061.38 --> 4061.94]  see why,
+[4062.18 --> 4062.66]  we need,
+[4062.72 --> 4063.48]  a community,
+[4063.96 --> 4064.72]  of believers,
+[4064.88 --> 4065.62]  around us.
+[4066.76 --> 4066.94]  Right?
+[4066.98 --> 4067.50]  Why we need,
+[4067.58 --> 4068.68]  a small group,
+[4068.82 --> 4070.02]  or a care group,
+[4070.02 --> 4071.10]  a solid group,
+[4071.10 --> 4071.68]  of people,
+[4071.82 --> 4072.88]  who will ask us,
+[4072.96 --> 4074.02]  the hard questions,
+[4074.02 --> 4074.50]  of life,
+[4074.56 --> 4074.98]  and faith,
+[4075.12 --> 4076.38]  who will challenge us,
+[4076.40 --> 4077.26]  if they see us,
+[4077.32 --> 4078.32]  not pursuing,
+[4078.32 --> 4079.48]  the things of God,
+[4079.80 --> 4080.10]  who will,
+[4080.18 --> 4081.06]  who will wonder,
+[4081.18 --> 4081.62]  with us,
+[4081.72 --> 4082.74]  why are you not,
+[4082.74 --> 4084.00]  engaging in the word,
+[4084.10 --> 4084.62]  or engaging,
+[4084.80 --> 4085.30]  in the community,
+[4085.30 --> 4085.76]  of faith,
+[4085.98 --> 4086.74]  even though you say,
+[4086.90 --> 4087.54]  you believe?
+[4088.54 --> 4089.64]  Why are you holding people,
+[4089.80 --> 4090.20]  here,
+[4090.28 --> 4091.28]  at arm's length?
+[4091.38 --> 4091.82]  Why are you not,
+[4091.82 --> 4092.42]  participating,
+[4092.74 --> 4093.26]  in the gathered,
+[4093.58 --> 4093.88]  body,
+[4094.20 --> 4094.72]  of believers?
+[4094.92 --> 4095.44]  Why are you,
+[4095.52 --> 4096.68]  not doing this?
+[4096.72 --> 4097.10]  We need,
+[4097.10 --> 4097.76]  the kinds of people,
+[4097.76 --> 4098.36]  to ask us,
+[4098.36 --> 4099.40]  these sorts of questions,
+[4099.40 --> 4100.18]  so that,
+[4100.30 --> 4101.36]  they can be used,
+[4101.42 --> 4101.80]  of God,
+[4101.88 --> 4102.58]  to turn us,
+[4102.66 --> 4103.62]  back to the truth,
+[4103.70 --> 4104.40]  when we wander,
+[4104.82 --> 4105.28]  away,
+[4105.54 --> 4106.06]  when we are,
+[4106.06 --> 4106.82]  disobedient,
+[4107.50 --> 4107.96]  to Jesus.
+[4109.52 --> 4110.18]  In fact,
+[4111.92 --> 4112.36]  obedience,
+[4112.92 --> 4115.04]  is the mark,
+[4115.56 --> 4116.42]  of the fourth,
+[4117.08 --> 4117.38]  soil.
+[4118.72 --> 4118.94]  Right?
+[4119.00 --> 4119.46]  Jesus said,
+[4120.46 --> 4121.36]  others are like,
+[4121.40 --> 4121.76]  seeds,
+[4121.84 --> 4122.88]  sown by good soil.
+[4123.04 --> 4123.98]  They hear the word,
+[4123.98 --> 4124.94]  they accept it,
+[4125.06 --> 4125.74]  and produce,
+[4125.90 --> 4126.44]  a crop,
+[4126.86 --> 4127.46]  some 30,
+[4127.60 --> 4128.14]  some 60,
+[4128.14 --> 4129.50]  some 100 times,
+[4130.06 --> 4130.68]  what is sowing,
+[4131.32 --> 4132.52]  what is sown.
+[4133.44 --> 4133.82]  Now,
+[4133.86 --> 4134.52]  I said at the beginning,
+[4135.24 --> 4136.28]  how you hear,
+[4137.44 --> 4139.92]  and how you set yourself up to hear,
+[4140.28 --> 4142.24]  matters for what you hear,
+[4142.64 --> 4144.28]  and if you are actually hearing,
+[4144.48 --> 4145.70]  what Jesus has to say.
+[4146.74 --> 4147.62]  What I want you to hear,
+[4147.70 --> 4148.32]  right now,
+[4148.74 --> 4150.16]  is what Jesus has to say.
+[4150.66 --> 4151.86]  Jesus says to you,
+[4152.02 --> 4153.32]  I am the way,
+[4153.44 --> 4153.88]  the truth,
+[4153.94 --> 4154.44]  and the life.
+[4154.56 --> 4156.04]  No one comes to the Father,
+[4156.04 --> 4157.06]  except through me.
+[4157.32 --> 4158.08]  Jesus says to you,
+[4158.12 --> 4159.52]  I am the resurrection,
+[4159.96 --> 4160.82]  and the life.
+[4160.96 --> 4161.96]  Jesus says to you,
+[4162.02 --> 4163.48]  I have come into the world,
+[4163.60 --> 4164.48]  and lived the life,
+[4164.58 --> 4165.60]  that you should have lived,
+[4165.84 --> 4166.80]  perfectly keeping,
+[4166.86 --> 4168.00]  all the commands of God,
+[4168.12 --> 4169.00]  on your behalf.
+[4169.12 --> 4169.76]  Jesus comes,
+[4169.88 --> 4170.68]  and he says to you,
+[4170.90 --> 4172.34]  I have died the death,
+[4172.46 --> 4173.54]  that you deserve,
+[4173.60 --> 4174.32]  as a punishment,
+[4174.56 --> 4175.28]  for your sin.
+[4175.36 --> 4176.52]  The reality of sin,
+[4176.58 --> 4177.60]  is that the wages of sin,
+[4177.66 --> 4178.06]  is death,
+[4178.18 --> 4179.60]  and Jesus has died it,
+[4179.68 --> 4181.10]  in your place.
+[4181.10 --> 4184.24]  And the same Jesus,
+[4184.46 --> 4185.32]  who lived the life,
+[4185.68 --> 4186.24]  we should have lived,
+[4186.30 --> 4187.18]  and who died the death,
+[4187.40 --> 4187.88]  that we deserve.
+[4187.98 --> 4188.72]  The same Jesus,
+[4188.88 --> 4189.70]  three days later,
+[4189.76 --> 4191.46]  was raised victorious,
+[4191.82 --> 4193.12]  over sin and death,
+[4193.18 --> 4194.26]  and he has ascended,
+[4194.38 --> 4195.16]  to the right hand,
+[4195.30 --> 4196.10]  of God the Father,
+[4196.18 --> 4197.08]  where he will one day,
+[4197.16 --> 4198.08]  come back to judge,
+[4198.22 --> 4198.76]  the living,
+[4199.14 --> 4199.80]  and the dead.
+[4200.12 --> 4201.64]  This is Jesus,
+[4201.94 --> 4203.44]  this is who he is,
+[4203.52 --> 4205.28]  and this is the word of him,
+[4205.48 --> 4207.22]  you need to hear,
+[4207.50 --> 4208.22]  and believe.
+[4208.22 --> 4209.66]  This is the gift,
+[4209.66 --> 4210.50]  of grace,
+[4211.48 --> 4211.96]  and faith.
+[4216.24 --> 4217.88]  And what this parable does,
+[4219.32 --> 4221.48]  it says that real hearing,
+[4222.06 --> 4224.30]  real hearing,
+[4224.38 --> 4225.98]  of that truth,
+[4226.34 --> 4227.46]  looks like,
+[4228.38 --> 4228.88]  obeying.
+[4230.34 --> 4230.74]  In fact,
+[4231.04 --> 4231.82]  in Hebrew,
+[4232.24 --> 4233.30]  the word to hear,
+[4233.58 --> 4234.94]  is often translated,
+[4235.32 --> 4235.90]  to obey.
+[4237.20 --> 4237.76]  And so,
+[4237.76 --> 4238.78]  let's come back,
+[4239.04 --> 4240.02]  full circle now,
+[4240.24 --> 4241.16]  if you are looking,
+[4241.16 --> 4242.56]  for a better foundation,
+[4242.56 --> 4243.88]  on which to question,
+[4244.06 --> 4244.72]  the authenticity,
+[4245.18 --> 4246.08]  of your faith,
+[4246.28 --> 4247.18]  rather than joy,
+[4247.28 --> 4247.94]  or an experience,
+[4248.12 --> 4248.80]  of some sort of,
+[4248.92 --> 4249.98]  emotional response,
+[4250.38 --> 4250.48]  right,
+[4250.52 --> 4251.58]  the question is,
+[4251.64 --> 4253.06]  the foundational question is,
+[4253.28 --> 4254.50]  am I obeying?
+[4254.70 --> 4255.70]  Am I striving,
+[4255.70 --> 4256.80]  to obey?
+[4257.22 --> 4258.04]  Am I trying,
+[4258.04 --> 4259.22]  to live the life,
+[4259.50 --> 4260.52]  that Jesus wants me,
+[4260.60 --> 4260.92]  to live,
+[4260.98 --> 4261.44]  in the way,
+[4261.54 --> 4262.60]  that Jesus wants me,
+[4262.64 --> 4263.02]  to live it?
+[4263.14 --> 4264.14]  That's the fruit,
+[4264.20 --> 4264.90]  of faith.
+[4265.48 --> 4265.98]  The fruit,
+[4266.06 --> 4267.22]  of hearing the word,
+[4267.22 --> 4268.68]  and it being planted,
+[4268.68 --> 4269.92]  deep in your heart,
+[4270.08 --> 4271.20]  and growing out,
+[4271.32 --> 4272.58]  and transforming you,
+[4272.66 --> 4273.60]  into the image,
+[4274.10 --> 4274.68]  of Jesus.
+[4275.98 --> 4276.72]  And again,
+[4276.84 --> 4277.52]  let me be,
+[4277.68 --> 4278.98]  really clear,
+[4279.10 --> 4280.10]  because sometimes,
+[4280.28 --> 4281.06]  you will hear,
+[4281.22 --> 4282.24]  preachers say,
+[4282.94 --> 4283.78]  that the multiplication,
+[4283.78 --> 4284.68]  of the fruit,
+[4284.78 --> 4285.24]  that 30,
+[4285.42 --> 4285.92]  60,
+[4286.04 --> 4286.84]  or 100 times,
+[4286.98 --> 4288.56]  is a miraculous gift.
+[4288.56 --> 4291.76]  but it's not.
+[4293.68 --> 4294.94]  It's ordinary.
+[4296.42 --> 4297.86]  That's the expected,
+[4297.86 --> 4299.40]  yield of the crop.
+[4300.34 --> 4300.44]  Right,
+[4300.50 --> 4301.30]  100 times,
+[4301.36 --> 4302.50]  would be a good harvest,
+[4302.60 --> 4303.02]  no doubt,
+[4303.60 --> 4304.24]  but it's not,
+[4304.30 --> 4305.38]  an unexpected one.
+[4306.12 --> 4306.26]  Right,
+[4306.28 --> 4306.84]  the point is,
+[4306.92 --> 4308.40]  this kind of fruit bearing,
+[4308.88 --> 4310.00]  this kind of hearing,
+[4310.42 --> 4311.58]  yielding to obedience,
+[4311.86 --> 4313.44]  is what you can expect,
+[4313.74 --> 4315.66]  as a disciple of Jesus,
+[4316.14 --> 4316.98]  who hears the gospel,
+[4316.98 --> 4318.44]  and lives in its truth.
+[4318.66 --> 4319.56]  That you manifest,
+[4319.66 --> 4321.16]  a transformed life.
+[4321.26 --> 4322.22]  This is the ordinary,
+[4322.22 --> 4323.20]  expectation,
+[4323.52 --> 4324.48]  of the disciple.
+[4325.82 --> 4325.92]  Right,
+[4325.94 --> 4327.26]  if you want to live,
+[4327.34 --> 4327.80]  obedient,
+[4327.92 --> 4328.68]  if you are struggling,
+[4328.68 --> 4329.70]  to live in the way,
+[4329.70 --> 4330.20]  that Jesus,
+[4330.38 --> 4331.84]  is calling you to live,
+[4332.48 --> 4333.52]  if there is a desire,
+[4333.76 --> 4334.28]  in you,
+[4334.36 --> 4335.40]  to more and more,
+[4335.56 --> 4336.24]  do that.
+[4336.54 --> 4336.90]  Perhaps,
+[4337.02 --> 4337.58]  especially,
+[4337.92 --> 4339.08]  when you don't feel,
+[4339.18 --> 4339.66]  like it.
+[4340.42 --> 4340.84]  That,
+[4341.08 --> 4341.84]  is a mark,
+[4341.94 --> 4342.70]  of the authenticity,
+[4343.28 --> 4344.00]  of belief,
+[4344.18 --> 4345.32]  that you can build,
+[4345.40 --> 4346.50]  a foundation upon.
+[4346.50 --> 4346.64]  Now,
+[4347.30 --> 4348.74]  now please,
+[4349.50 --> 4351.34]  hear what I'm saying,
+[4351.92 --> 4353.76]  because I'm not saying,
+[4353.90 --> 4354.96]  that what you have to do,
+[4355.04 --> 4355.56]  is obey,
+[4355.68 --> 4356.50]  in order to earn,
+[4356.56 --> 4357.40]  the right to hear.
+[4357.62 --> 4358.76]  Or that you have to obey,
+[4358.88 --> 4359.62]  in order to earn,
+[4359.70 --> 4360.74]  the gift of faith,
+[4360.80 --> 4361.32]  or to earn,
+[4361.44 --> 4362.92]  the grace of God.
+[4363.52 --> 4363.76]  Right,
+[4363.80 --> 4364.30]  or that,
+[4364.82 --> 4365.06]  right,
+[4365.12 --> 4366.36]  if you disobey,
+[4366.46 --> 4367.08]  that you're somehow,
+[4367.26 --> 4368.88]  outside of belief,
+[4369.18 --> 4369.62]  and believing.
+[4369.70 --> 4370.92]  Or that if you have doubts,
+[4371.22 --> 4372.20]  then your belief,
+[4372.36 --> 4373.20]  is uncertain.
+[4373.20 --> 4373.40]  And,
+[4373.40 --> 4377.28]  we all struggle,
+[4377.66 --> 4379.02]  with obedience.
+[4379.90 --> 4380.90]  We all struggle,
+[4380.90 --> 4382.16]  with sin.
+[4382.30 --> 4383.06]  We all struggle,
+[4383.26 --> 4384.20]  with doubts.
+[4384.50 --> 4385.76]  The mark of belief,
+[4386.04 --> 4387.06]  is that you struggle,
+[4387.50 --> 4388.08]  with it.
+[4389.36 --> 4389.90]  Right,
+[4389.94 --> 4390.94]  instead of just accepting,
+[4391.96 --> 4392.98]  or instead of just doing,
+[4393.16 --> 4394.64]  as culture has done,
+[4394.74 --> 4395.74]  which is turning vices,
+[4395.74 --> 4396.94]  into virtues,
+[4397.10 --> 4397.88]  or turning sins,
+[4397.98 --> 4399.04]  into celebrations.
+[4400.02 --> 4400.44]  Instead,
+[4401.44 --> 4402.50]  what I'm saying,
+[4403.48 --> 4404.42]  is that you hear,
+[4404.54 --> 4406.06]  with a receptive heart,
+[4407.00 --> 4407.88]  and so you obey.
+[4408.54 --> 4409.04]  Belief,
+[4409.38 --> 4410.20]  precedes,
+[4410.58 --> 4411.10]  obedience.
+[4411.82 --> 4413.00]  Even the possibility,
+[4413.22 --> 4414.00]  of obedience,
+[4414.30 --> 4414.90]  must come,
+[4415.30 --> 4416.54]  after belief.
+[4416.66 --> 4418.08]  Even if it is a full belief,
+[4418.42 --> 4419.16]  or a belief,
+[4419.24 --> 4420.04]  full of questions,
+[4420.40 --> 4420.80]  and doubts,
+[4420.96 --> 4421.36]  and struggles,
+[4421.48 --> 4422.02]  and setbacks.
+[4422.18 --> 4422.90]  Even then,
+[4422.98 --> 4424.16]  you can expect,
+[4424.36 --> 4425.18]  to produce,
+[4425.44 --> 4425.96]  the fruit,
+[4426.24 --> 4426.84]  of belief.
+[4426.84 --> 4428.72]  Now,
+[4428.80 --> 4429.72]  maybe that fruit,
+[4430.04 --> 4432.32]  is loving someone,
+[4432.44 --> 4433.92]  in an impossible situation.
+[4435.48 --> 4436.64]  Maybe that fruit,
+[4436.78 --> 4437.76]  is joy,
+[4437.94 --> 4438.46]  in the truth,
+[4438.62 --> 4439.46]  of the gospel,
+[4439.70 --> 4440.42]  in the sovereignty,
+[4440.88 --> 4441.46]  of God.
+[4442.10 --> 4443.06]  Maybe that truth,
+[4443.32 --> 4443.34]  is,
+[4443.60 --> 4444.20]  or that fruit,
+[4444.34 --> 4445.32]  is peace,
+[4445.44 --> 4446.56]  when all of life,
+[4446.64 --> 4447.48]  is chaos.
+[4447.82 --> 4447.96]  Right,
+[4448.00 --> 4448.86]  then we can sing,
+[4449.00 --> 4449.76]  it is well,
+[4449.82 --> 4450.64]  at a funeral.
+[4453.52 --> 4454.60]  Maybe that fruit,
+[4454.78 --> 4455.66]  is patience,
+[4455.82 --> 4456.42]  when your kids,
+[4456.42 --> 4457.46]  are driving you insane.
+[4458.80 --> 4459.60]  Maybe that fruit,
+[4459.70 --> 4460.38]  is kindness,
+[4460.70 --> 4461.28]  to those,
+[4461.34 --> 4461.96]  whom society,
+[4461.96 --> 4462.62]  has rejected,
+[4462.76 --> 4463.22]  or ignored.
+[4463.36 --> 4463.98]  Maybe that fruit,
+[4464.20 --> 4465.02]  is doing good,
+[4465.08 --> 4466.22]  when it would be so easy,
+[4466.22 --> 4467.20]  to do wrong.
+[4467.30 --> 4467.90]  Maybe that fruit,
+[4468.02 --> 4468.82]  is faithfulness,
+[4469.04 --> 4469.94]  when infidelity,
+[4469.94 --> 4471.34]  would be so easy.
+[4471.46 --> 4472.06]  Maybe that fruit,
+[4472.18 --> 4472.88]  is gentleness,
+[4473.10 --> 4473.84]  when you're angry.
+[4474.00 --> 4474.60]  Maybe that fruit,
+[4474.70 --> 4475.62]  is self-control,
+[4475.96 --> 4476.68]  as a mastery,
+[4476.78 --> 4477.64]  over temptations,
+[4477.86 --> 4478.36]  and desires.
+[4478.44 --> 4478.82]  Or at least,
+[4478.90 --> 4479.72]  a gaining of,
+[4479.78 --> 4480.80]  a working towards,
+[4481.16 --> 4481.56]  mastery,
+[4481.82 --> 4482.90]  over your temptations,
+[4483.10 --> 4484.02]  and desires.
+[4484.02 --> 4485.82]  And then,
+[4486.94 --> 4487.74]  and hear this,
+[4487.78 --> 4488.62]  this is the final point.
+[4490.92 --> 4491.80]  Because hearing,
+[4491.94 --> 4493.08]  is more about,
+[4493.08 --> 4493.72]  obeying,
+[4493.80 --> 4494.48]  than feeling,
+[4495.48 --> 4496.90]  how you hear,
+[4497.90 --> 4499.12]  is in your hands.
+[4500.74 --> 4501.94]  That's in your control.
+[4503.30 --> 4504.14]  Because whether,
+[4504.34 --> 4505.36]  or not you obey,
+[4505.52 --> 4506.58]  and choose to obey,
+[4507.24 --> 4508.28]  is up to you.
+[4509.72 --> 4511.02]  You are responsible,
+[4511.02 --> 4512.54]  for that.
+[4518.42 --> 4519.76]  The one who has ears,
+[4520.50 --> 4521.02]  to hear,
+[4522.02 --> 4524.04]  let them hear.
+[4525.42 --> 4526.22]  Do you hear me?
+[4529.12 --> 4530.20]  Let's try that again.
+[4531.44 --> 4532.16]  Do you hear me?
+[4533.36 --> 4533.66]  Amen.
+[4534.22 --> 4534.86]  Let's pray together.
+[4534.86 --> 4534.94]  Amen.
+[4534.94 --> 4534.98]  Let's pray together.
+[4541.02 --> 4542.94]  Lord our God,
+[4543.72 --> 4546.72]  may we hear you,
+[4547.92 --> 4549.08]  this morning.
+[4550.98 --> 4552.90]  May this parable,
+[4553.10 --> 4553.68]  this story,
+[4553.82 --> 4554.80]  this gospel,
+[4555.08 --> 4556.36]  truth of old,
+[4556.48 --> 4558.08]  may this statement,
+[4558.08 --> 4559.14]  of belief,
+[4559.38 --> 4560.96]  and recognition,
+[4561.42 --> 4562.68]  of what is real,
+[4563.12 --> 4563.82]  go deep,
+[4563.82 --> 4565.40]  into our hearts,
+[4565.66 --> 4566.54]  and minds,
+[4566.70 --> 4567.30]  this morning.
+[4567.40 --> 4568.70]  May we be captivated,
+[4568.70 --> 4569.34]  by the beauty,
+[4569.34 --> 4570.02]  of the gospel.
+[4570.02 --> 4571.02]  May we be compelled,
+[4571.26 --> 4572.42]  in our imaginations,
+[4572.56 --> 4573.02]  to reveal,
+[4573.12 --> 4573.92]  the kingdom come,
+[4574.16 --> 4575.10]  and the kingdom coming,
+[4575.22 --> 4577.54]  because we see you.
+[4578.54 --> 4579.88]  Because we have seen you,
+[4579.96 --> 4581.68]  and are seen by you.
+[4583.42 --> 4584.96]  Speak in truth,
+[4585.46 --> 4586.18]  to us.
+[4586.76 --> 4587.84]  And as we go,
+[4588.44 --> 4589.18]  may we live,
+[4589.42 --> 4590.74]  that truth,
+[4590.84 --> 4591.60]  and produce,
+[4592.14 --> 4592.70]  a crop,
+[4592.96 --> 4593.30]  30,
+[4593.76 --> 4594.30]  60,
+[4594.90 --> 4595.88]  100 times,
+[4596.00 --> 4596.74]  of faithful,
+[4597.36 --> 4597.76]  fruitful,
+[4597.76 --> 4598.76]  obedience,
+[4599.92 --> 4600.18]  to you.
+[4600.60 --> 4601.34]  In Jesus name,
+[4601.42 --> 4601.76]  we pray.
+[4602.58 --> 4602.84]  Amen.
+[4602.84 --> 4602.90]  Amen.
+[4602.90 --> 4602.92]  Amen.
+[4602.92 --> 4605.00]  Amen.
+[4605.00 --> 4607.00]  You
+[4635.00 --> 4650.50]  Our Father everlasting, the all-creating one, God Almighty.
+[4650.50 --> 4664.74]  Through your Holy Spirit, conceiving Christ the Son, Jesus our Savior.
+[4667.68 --> 4678.22]  I believe in God the Father, I believe in Christ the Son, I believe in the Holy Spirit.
+[4678.22 --> 4689.26]  Our God is three in one, I believe in the resurrection, that we will rise again.
+[4689.72 --> 4695.74]  For I believe in the name of Jesus.
+[4708.22 --> 4717.48]  Our judge and our defender, suffered and crucified.
+[4719.28 --> 4722.22]  Forgiveness is in you.
+[4722.22 --> 4732.22]  He said, live into darkness, you rose in glorious light.
+[4733.22 --> 4737.22]  Forever seated high.
+[4737.22 --> 4748.22]  I believe in God our Father, I believe in Christ the Son, I believe in the Holy Spirit.
+[4748.22 --> 4752.22]  Our God is three in one.
+[4752.22 --> 4759.48]  I believe in the resurrection, that we will rise again.
+[4759.48 --> 4765.72]  For I believe in the name of Jesus.
+[4765.72 --> 4769.48]  I believe in God.
+[4769.48 --> 4773.98]  I believe in you.
+[4773.98 --> 4777.04]  I believe in you.
+[4777.04 --> 4781.22]  I believe in you rose again.
+[4781.22 --> 4792.04]  I believe that Jesus Christ is Lord.
+[4794.46 --> 4801.62]  I believe in you.
+[4803.12 --> 4807.56]  I believe you rose again.
+[4807.56 --> 4818.56]  I believe that Jesus Christ is Lord.
+[4823.56 --> 4827.92]  I believe in life eternal.
+[4828.70 --> 4831.96]  I believe in the virgin birth.
+[4831.96 --> 4839.40]  I believe in the saints communion and in your holy church.
+[4839.60 --> 4846.36]  I believe in the resurrection when Jesus comes again.
+[4846.36 --> 4852.72]  For I believe in the name of Jesus.
+[4853.72 --> 4856.60]  I believe in God our Father.
+[4857.22 --> 4860.26]  I believe in Christ our Son.
+[4860.68 --> 4863.48]  I believe in the Holy Spirit.
+[4864.20 --> 4867.34]  Our God is three in one.
+[4867.34 --> 4870.20]  I believe in the resurrection.
+[4870.90 --> 4873.34]  That we will rise again.
+[4874.54 --> 4880.18]  For I believe in the name of Jesus.
+[4880.18 --> 4887.38]  For I believe in the name of Jesus.
+[4888.90 --> 4889.40]  For I believe in the name of Jesus.
+[4889.40 --> 4893.30]  For I believe in the name of Jesus.
+[4893.30 --> 4897.28]  For I believe in the name of Jesus.
+[4897.28 --> 4902.16]  We have an opportunity now to go out into the world
+[4902.16 --> 4907.04]  and proclaim our Savior in whom we believe,
+[4907.18 --> 4908.78]  with whom we go.
+[4908.78 --> 4912.08]  He goes with us.
+[4912.12 --> 4915.96]  Before I give you our blessing for the days and week ahead,
+[4916.06 --> 4918.10]  just a reminder, following our worship together,
+[4918.22 --> 4920.08]  we are having some coffee and the like,
+[4920.14 --> 4921.16]  so stick around for that.
+[4921.96 --> 4925.50]  And then at 12-ish, we will be playing baseball.
+[4925.66 --> 4926.78]  For those of you who want to come,
+[4926.84 --> 4929.28]  or if you want to come, just hang out with a potluck picnic.
+[4929.84 --> 4931.64]  That's at McLeod Park.
+[4931.64 --> 4936.94]  And so 216 north of 56, there's a parking lot on the left.
+[4936.94 --> 4937.72]  You can park there.
+[4937.80 --> 4940.12]  We're at one of the South Diamonds.
+[4940.20 --> 4941.80]  Anyway, you'll find Kevin there.
+[4941.86 --> 4943.40]  He'll have a big tent set up for you.
+[4944.10 --> 4944.98]  And me as well.
+[4945.28 --> 4946.74]  Anyway, you'll find us there.
+[4946.76 --> 4949.36]  If you don't know where that is or need further instructions,
+[4949.60 --> 4951.68]  grab Kevin or myself after the service.
+[4951.68 --> 4955.62]  Receive God's blessing as we go this week.
+[4956.70 --> 4960.86]  May God go before you to lead you.
+[4961.86 --> 4964.80]  May God go behind you to guard you.
+[4965.44 --> 4967.78]  May God go beneath you to support you.
+[4967.94 --> 4971.52]  And may God go beside you to befriend you.
+[4972.08 --> 4974.36]  Do not be afraid.
+[4974.36 --> 4976.76]  Let the blessing of God come upon you today.
+[4976.90 --> 4979.04]  Do not be afraid.
+[4979.58 --> 4984.86]  But go in peace to love and serve the Lord.
+[4985.76 --> 4986.28]  Amen.
+[4986.28 --> 4986.38]  Amen.
+[5004.36 --> 5016.96]  Everlasting, everlasting, you are God.
+[5016.96 --> 5031.10]  Everlasting, everlasting, you are God.
+[5031.10 --> 5039.10]  And holiness, you stand secure through culture-shifting cells.
+[5039.44 --> 5045.10]  Changed by all the manatees of men.
+[5045.10 --> 5052.50]  And as the nations rise and fall, your sovereignty remains.
+[5052.50 --> 5063.50]  You are, you are, you are, you are the one true God.
+[5063.50 --> 5077.50]  Everlasting, everlasting, you are God.
+[5077.50 --> 5090.50]  Everlasting, everlasting, you are God.
+[5090.50 --> 5091.50]  You are God.
+[5091.50 --> 5098.50]  Faithfulness, your love extends through times of turbulence.
+[5098.50 --> 5105.50]  The topic knows to call upon your name.
+[5105.50 --> 5112.50]  Every generation joins in songs of grateful praise.
+[5112.50 --> 5125.50]  You are, you are, you are the one true God.
+[5125.50 --> 5126.50]  Everlasting, everlasting, you are God.
+[5126.50 --> 5132.50]  You are, you are God.
+[5132.50 --> 5138.58]  you are God.
+[5140.58 --> 5152.92]  Everlasting, everlasting, you are God.
+[5152.92 --> 5165.70]  Eternal, immortal, invisible God.
+[5167.70 --> 5178.76]  Eternal, immortal, invisible God.
+[5178.76 --> 5192.76]  Eternal, immortal, invisible God.
+[5194.76 --> 5205.76]  Eternal, immortal, invisible God.
+[5208.76 --> 5213.76]  You are God.
+[5213.76 --> 5218.76]  Eternal, immortal, invisible God.
+[5218.76 --> 5223.76]  Eternal, immortal, reference to the urge for you.
+[5223.76 --> 5224.76]  In YouTube, by the increasing age,
+[5224.76 --> 5228.76]  bar'-char coordination is included in itself,
+[5228.76 --> 5229.76]  as a expectation.
+[5230.76 --> 5231.76]  It will be necessary.
+[5231.76 --> 5261.74]  Thank you.
+[5261.76 --> 5291.74]  Thank you.
+[5291.76 --> 5321.74]  Thank you.
+[5321.76 --> 5351.74]  Thank you.
