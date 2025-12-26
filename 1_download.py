@@ -6,7 +6,7 @@ YouTube Channel sermon playlist.
 import yt_dlp
 
 
-def download_playlist(channel_url, output_path):
+def download_playlist(channel_url):
     """
     Downloads all videos from a YouTube playlist.
     """
@@ -27,5 +27,5 @@ def download_playlist(channel_url, output_path):
 
 if __name__ == "__main__":
     channel_url = "https://www.youtube.com/channel/UC3RKXxa8UmArxl4ZO3QHYRw/streams"
-    download_playlist(channel_url, output_path)
-    print(f"Downloaded all videos from {year} to {output_path}.")
+    download_playlist(channel_url)
+    print("Downloaded all videos from the LICRC YouTube channel.")

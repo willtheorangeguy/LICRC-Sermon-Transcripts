@@ -11,9 +11,18 @@ scripts = [
     "1_download.py",
     "2_transcriber.py",
     "3_summarizer.py",
-    "4_cleanup.py",
+    "4_cleanup.py"
 ]
 
+# List of years
+years = [
+    "2020",
+    "2021",
+    "2022",
+    "2023",
+    "2024",
+    "2025"
+]
 
 def main():
     """Main function to run the scripts in order."""
