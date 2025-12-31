@@ -19,13 +19,13 @@ def download_playlist(channel_url):
         "ignoreerrors": True,
         "download_archive": "downloaded.log",
         "outtmpl": "%(upload_date>%Y)s/%(title)s.%(ext)s",
-        "remote_components": "ejs: github"
+        "remote_components": "ejs:github"
     }
     with yt_dlp.YoutubeDL(ydl_opts) as ydl:
         ydl.download([channel_url])
 
 
 if __name__ == "__main__":
-    channel_url = "https://www.youtube.com/channel/UC3RKXxa8UmArxl4ZO3QHYRw/streams"
-    download_playlist(channel_url)
+    channel = "https://www.youtube.com/channel/UC3RKXxa8UmArxl4ZO3QHYRw/streams"
+    download_playlist(channel)
     print("Downloaded all videos from the LICRC YouTube channel.")
