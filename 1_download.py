@@ -1,5 +1,5 @@
 """
-This script uses yt-dlp to download videos, by year, from the HCC
+This script uses yt-dlp to download videos, by year, from the LICRC
 YouTube Channel sermon playlist.
 """
 

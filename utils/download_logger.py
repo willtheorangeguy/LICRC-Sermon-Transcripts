@@ -1,8 +1,6 @@
 """Script to extract video IDs from a YouTube playlist using yt-dlp
 and write them to a corresponding log file."""
 
-import os
-import sys
 import yt_dlp
 
 def get_playlist_video_ids(url):
