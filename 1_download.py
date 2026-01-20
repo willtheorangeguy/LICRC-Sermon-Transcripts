@@ -12,13 +12,18 @@ def download_playlist(channel_url):
     """
     ydl_opts = {
         "format": "bestaudio",
-        "extractaudio": True,
-        "audioformat": "mp3",
-        "audioquality": 0,
         "noplaylist": False,
         "ignoreerrors": True,
         "download_archive": "downloaded.log",
         "outtmpl": "%(upload_date>%Y)s/%(title)s.%(ext)s",
+        "postprocessors": [
+            {
+                "key": "FFmpegExtractAudio",
+                "preferredcodec": "mp3",
+                "preferredquality": "0",
+            }
+        ],
+        "keepvideo": False,
         "remote_components": "ejs:github"
     }
     with yt_dlp.YoutubeDL(ydl_opts) as ydl:
